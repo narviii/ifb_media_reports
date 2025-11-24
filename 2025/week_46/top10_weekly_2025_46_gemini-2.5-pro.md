@@ -1,33 +1,33 @@
 # Weekly Top 10 Indie Makeup Product Mentions
 
-**Reporting Period:** November 10–17, 2023
+**Reporting Period:** November 10–16, 2025
 
-1. **Super Shock Shadow by ColourPop** — 7 mentions  
-   Creators consistently praised this product for its unique, creamy-to-powder texture and intense, glittery finish. It was frequently featured in holiday-themed tutorials and recommended as an affordable, high-impact single eyeshadow. The shade "Frog" was specifically highlighted for its versatile, multi-dimensional shimmer that can be used as a topper or on its own.
+1.  **Ice Crystal Palette by Oden's Eye** — 15 mentions  
+    This highly anticipated holiday palette was overwhelmingly praised by creators for its unique color story, which blends icy pastels with warm, vibrant shades. Reviews consistently highlighted the blendability of the matte formula and the variety of complex, reflective shimmers. While a few creators found the palette too light for their personal preference or noted some tricky shimmer textures, the overall sentiment was positive, driven by a coordinated PR launch.
 
-2. **Groundwork Palette by Danessa Myricks Beauty** — 5 mentions  
-   The Groundwork Palette was predominantly featured in "full face of one brand" videos and praised for its multi-use capabilities. Creators demonstrated its use on eyes, brows, and for contouring, emphasizing its value and versatility for both professionals and consumers. The positive sentiment focused on the blendable, long-wearing formula of the pomades and coordinating powders.
+2.  **The Reverie Collection by MOB Beauty** — 7 mentions  
+    This collaboration with creator Courtney Quarantine was consistently framed around a nostalgic, cozy, and dreamlike fall aesthetic. Creators were particularly intrigued by the four-pan palette's unusual yet appealing color combination of warm and moody tones. The launch was heavily promoted across brand and creator channels, highlighting the collection's unique vibe and inspiration.
 
-3. **Lash Princess False Lash Effect Mascara by essence** — 5 mentions  
-   This mascara was consistently hailed as a top-tier drugstore find that rivals high-end alternatives. Creators mentioned it in "holy grail" and "empties" videos, highlighting its ability to deliver significant volume and length without clumping. Its affordability was a key talking point, making it a go-to recommendation for budget-conscious viewers.
+3.  **Night of the Leonids Collection by Terra Moons Cosmetics** — 6 mentions  
+    This upcoming 14-piece shimmer collection was promoted through affiliate swatch videos and posts, generating excitement for its launch. Creators highlighted the beautiful variety of formulas, including large-particle iridescents and smooth shimmers with deep, complex bases. The collection was described as one of the brand's best launches of the year, with several creators identifying specific shades as standouts.
 
-4. **Blurring Balm Powder by Danessa Myricks Beauty** — 4 mentions  
-   The Blurring Balm Powder was showcased for its unique texture and ability to control oil while providing a natural, skin-like finish. It was used both as a primer to prep the skin and as a setting powder over foundation. Creators with oily and combination skin types particularly lauded its performance in extending makeup wear time.
+4.  **Forest Hues, Mystic Dreams Collection by Shine By SD Cosmetics** — 6 mentions  
+    This collection's return for a limited pre-order generated significant buzz, framed as a final chance to acquire a popular past collaboration with creator GlamSmitty. Promotional content focused on detailed swatches that emphasized the extremely sparkly and multichrome nature of the single shadows. The collection's dual themes of deep, earthy tones and ethereal, celestial shifts were a key part of its appeal.
 
-5. **Matte Fluid Eye Paint by ABOUT-FACE BEAUTY** — 3 mentions  
-   This product was a favorite for creating bold, graphic eyeliner looks due to its vibrant pigmentation and budge-proof formula. Creators demonstrated its versatility by using it as a colorful eyeshadow base and for detailed liner work. The sentiment was overwhelmingly positive, focusing on its long-lasting power and intense color payoff.
+5.  **Bizarre Botanicals Palette by Dieverune Cosmetics** — 5 mentions  
+    This palette was consistently praised for its excellent performance in creating colorful, high-impact eye looks. Creators highlighted its strong pigmentation, smooth blendability, and impressive color payoff across both matte and shimmer formulas. It was frequently featured in tutorials and collaborative posts, where the visual results demonstrated its ability to achieve complex and dramatic effects.
 
-6. **Lightwork V Palette by Danessa Myricks Beauty** — 3 mentions  
-   Featured as a standout for creating ethereal and multi-chrome eye looks, this palette was praised for its innovative formulas and special effects shades. Creators were particularly impressed with the "Aqua Chromes" and holographic finishes, often using it for festive or creative makeup tutorials. The discussion centered on its unique artistry-driven quality and stunning visual impact.
+6.  **Hannah Louise Poston Lip and Cheek collaboration by Salt New York** — 4 mentions  
+    This collaboration with creator Hannah Louise Poston was met with high praise, particularly for its unique "desaturated" and "grungey" undertones. Creators who received the products in PR expressed excitement, highlighting their love for the brand's base cream formula. The collaboration was showcased through detailed swatch posts and was described as a perfect pairing for the creator's aesthetic.
 
-7. **The Basic Palette by Juvia's Place** — 2 mentions  
-   This palette was recommended as an essential tool for creating everyday neutral eye looks. Creators appreciated its curated color story of wearable mattes, noting the high pigmentation and blendability Juvia's Place is known for. It was often presented as a perfect, reliable palette for beginners or for daily use.
+7.  **Spectra Lash by Glisten Cosmetics** — 4 mentions  
+    This colored mascara was consistently used by a creator to add precise, colorful details to a variety of alternative makeup looks. Both the black and purple versions were featured, demonstrating the product's versatility for creating graphic elements and enhancing eye definition. Its repeated use suggests it is a reliable staple for achieving sharp, pigmented liner effects.
 
-8. **Hydromaniac Tinted Glow Hydrator by Urban Decay** — 2 mentions  
-   Mentioned as a go-to for a dewy, medium-coverage base, this tinted moisturizer was praised for its hydrating properties and long-lasting wear. Creators with dry to normal skin types recommended it for achieving a healthy, radiant complexion without feeling heavy. It was featured in tutorials aiming for a "glass skin" or natural makeup look.
+8.  **Gingerbread Bakery Palette by Simply Posh Cosmetics** — 3 mentions  
+    Creators described this palette as a beautiful and versatile option that successfully combines soft pastels with wearable neutrals. It was featured in tutorials where creators used shades from both sides of the color story to build cohesive, complex looks. The quality was praised, with specific mentions of the sparkly duochrome shimmers and buildable matte formula.
 
-9. **Liquid Killawatt Fluid Freestyle Highlighter by FENTY BEAUTY** — 2 mentions  
-   This liquid highlighter was celebrated for its intense, buildable glow that melts seamlessly into the skin. Creators used it on the high points of the face for a radiant finish and also mixed it with foundation for an all-over luminosity. The positive sentiment highlighted its lightweight feel and powerful, reflective shine.
+9.  **Intuition by Rituel de Fille** — 3 mentions  
+    This product was repeatedly used by a creator as their go-to for contouring in several different makeup looks. Its consistent appearance in product rundowns indicates it is a reliable staple in their routine. The context suggests it performs well for sculpting and defining the face within an alternative aesthetic.
 
-10. **Lip Soufflé Matte Lip Cream by Rare Beauty** — 2 mentions  
-    Creators featured this product for its comfortable, whipped texture that provides a soft, blurring matte finish. It was described as a non-drying alternative to traditional liquid lipsticks, making it suitable for everyday wear. The lip cream was often included in "favorite lip products" and full-face brand reviews.
+10. **Lightworks VII The Freedom Makeup Palette by Danessa Myricks Beauty** — 2 mentions  
+    This palette garnered mixed reviews, highlighting a polarizing user experience. One creator was disappointed with a specific shimmer shade, describing its formula as thick and difficult to work with. In contrast, another creator was highly impressed, praising the palette's innovative, sparkly formulas and comparing them favorably to sought-after C-beauty textures.
