@@ -3,31 +3,31 @@
 **Reporting Period:** November 17–23, 2025
 
 1.  **Artificer Palette by Fantasy Cosmetica** — 20 mentions  
-    This palette overwhelmingly dominated conversations, praised for its "steampunky spicy neutrals" and versatile shimmer-heavy formula. Creators consistently highlighted the intense pigmentation, smooth blendability of the mattes, and the "stunning" quality of the mixed-metal and holographic shimmers. The collection's innovative toolkit for repairing and removing pans was also frequently cited as a unique and exciting feature.
+    Creators overwhelmingly praised this palette for its unique "steampunky spicy neutrals" and high-quality formulas. It was consistently featured in tutorials, swatches, and collection reveals, with mentions highlighting the intense pigmentation of its versatile shimmers and the blendability of its mattes. The palette was celebrated for being a creative, shimmer-heavy take on a neutral color story.
 
 2.  **Edward Scissorhands Palette by Melt Cosmetics** — 8 mentions  
-    Creators expressed being "head over heels in love" with this palette, frequently ranking it as a top holiday release. The "grungy winter" color story of cool-toned blues, purples, and greens was a major draw, along with the detailed snow-globe packaging. The shimmers were described as some of the best the brand has ever done, lauded for being exceptionally "shiny and glossy looking" and perfect for creating sparkly, wintery looks.
+    This palette was consistently named the "star of the show" in its collection, with creators expressing they were "head over heels in love" with it. Praise centered on the "snow-globe" packaging and the "grungy winter" color story of cool-toned blues, purples, and greens. The shimmers were frequently described as some of the best the brand has ever produced, noted for their shiny, glossy, and sparkly finish.
 
-3.  **FauxFilter Concealer by HUDA BEAUTY** — 5 mentions  
-    This concealer appeared as a reliable staple in multiple creator routines for both spot concealing and brightening the under-eye area. One creator described it as a beloved product they were actively trying to use up, indicating high regard for its performance. Its consistent use in "get ready with me" content across platforms reinforces its status as a trusted go-to for achieving a flawless base.
+3.  **FauxFilter Concealer by Huda Beauty** — 5 mentions  
+    This product was a staple in creator routines for both spot concealing and under-eye brightening. Sentiment was highly positive, with one creator noting they love the formula so much they are actively trying to use up their tube. The color corrector version was also mentioned for its effectiveness in covering skin discolorations.
 
 4.  **Ice Crystal Palette by Oden's Eye** — 5 mentions  
-    Described as a "pleasant surprise" with "iridescent wintery vibes," this palette was praised for its unique color combinations and aesthetic appeal. Creators loved how its shimmers "sparkle in the sunlight" and noted its vivid pigmentation in swatches. Frequent use was implied by visible dips in the pans, suggesting it has become a well-loved item in their collections.
+    Described as a "pleasant surprise" with an "iridescent wintery" theme, this palette was lauded for its unique mix of icy tones and pops of warmth. Creators highlighted how beautifully the shimmers "sparkle in the sunlight," with some showing visible dips in the pans, implying frequent and enjoyable use.
 
 5.  **Gingerbread Bakery Palette by Simply Posh Cosmetics** — 5 mentions  
-    This palette was consistently described as "so cute," featuring a "half pastel, half neutral" theme ideal for those wanting to experiment with color. The formula received high marks, with creators praising the "beautiful, very blendable mattes" and "glossy, shimmery" shadows that were easy to work with. It was featured in tutorials to create soft, colorful eye looks.
+    This palette was noted for its "cutesy" theme and a "half pastel, half neutral" color story. Creators consistently praised its "beautiful, very blendable mattes" and "glossy, shimmery" shimmers. While some creators noted a personal preference for more vibrant colors, the formula quality was consistently rated as excellent and easy to work with.
 
-6.  **Hemlock Enchanted Lip Sheer by Rituel de Fille** — 4 mentions  
-    As a new release for the brand's Black Friday event, this product generated significant buzz. It was described as a "moody blackened purple" and a unique addition to the brand's lip sheer formula, with creators calling it a new favorite. Its promotion as an exclusive gift-with-purchase drove anticipation and highlighted its wearable yet alternative appeal.
+6.  **Colorfix by Danessa Myricks Beauty** — 4 mentions  
+    This versatile product was a key component in detailed and artistic eye looks across multiple tutorials. Creators used the white shade as a base to enhance the vibrancy of other eyeshadows and the foil version to add a high-impact metallic effect to the lid. Its performance in creating sharp, graphic details was a recurring theme.
 
-7.  **Merry Chrissy Palette by Glaminatrix** — 4 mentions  
-    This new launch celebrated an "Australian Christmas" with a colorful and fun theme that creators found appealing. Detailed reviews and swatches showcased its pigmented matte formula and pleasant, sparkly shimmers. The palette's announcement generated positive interest due to the brand's reputation for high-quality formulas and unique color stories.
+7.  **Night of the Leonids Single Shadows by Terra Moons Cosmetics** — 4 mentions  
+    This collection was showcased through extensive swatches and try-on videos, with creators praising its rich, jewel-toned, and cohesive winter theme. The shadows were highlighted for their variety of sparkly and shifty finishes. Specific shades were used to create dramatic, emerald-toned eye looks, demonstrating their intense pigmentation.
 
-8.  **Sickly Sweet Palette by Blend Bunny Cosmetics** — 3 mentions  
-    This palette was a key component in creating soft, pastel eye looks, often used alongside other palettes from the brand. Creators featured it in tutorials and "get ready with me" videos to add pops of light pink and other soft colors to the inner corner and brow bone. Its repeated use highlights its role as a go-to for achieving vibrant, coquette-style makeup.
+8.  **Come Play With Us Palette by Bella Beaute Bar** — 3 mentions  
+    Applauded for its unique "spooky holiday" theme, this palette combines icy winter blues with classic reds and greens. Creators consistently praised the "fantastic" formulas, noting the mattes were "so pigmented" and delivered significant color payoff. It was notably used to create a bold, monochromatic red eye look.
 
 9.  **Reap Lip Pencil by Unearthly Cosmetics** — 3 mentions  
-    Featured in multiple dramatic lip combinations, this pencil was praised for its performance in creating a precise, defined base. Its dark, reddish-brown and deep plum shades were used to outline and fill the lips, providing a rich matte foundation for contrasting glosses. Its effectiveness in building bold, vampy looks made it a standout liner.
+    This deep reddish-brown lip liner was a go-to for creating dramatic and vampy lip combinations. Creators praised its ability to provide a "really cool contrast" when topped with shifting glosses and its precise application for outlining lips. It was consistently featured as a base for grungy and bold lip looks.
 
-10. **Come Play With Us Palette by Bella Beaute Bar** — 3 mentions  
-    This palette earned praise for its unique "spooky holiday" theme, which mixed icy blues with classic reds and greens. Creators lauded the "fantastic" and "so pigmented" matte formula, which was showcased in a bold, monochromatic red eye look. The palette was highlighted as a cool and unique option for the holiday season.
+10. **Reverie Collection by MOB Beauty** — 3 mentions  
+    This collaboration with creator Courtney Quarantine was received with high enthusiasm for its "cozy, warm, nostalgic" aesthetic. The collection, featuring an eyeshadow palette and lip gloss, was celebrated for its personal and meaningful color story. Creators expressed that the shades brought them a sense of comfort and joy.
