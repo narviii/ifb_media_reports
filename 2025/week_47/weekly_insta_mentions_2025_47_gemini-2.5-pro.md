@@ -1,76 +1,67 @@
 ### Influencer Mentions
 
 *   **Artificer eyeshadow palette by FANTASY COSMETICA**
-    *   @deandranicoleee on 2025-11-17 (Sidecar) - Showcased swatches of the new collection upon its reveal. Link: https://www.instagram.com/p/DRKxK2dEf2a/
-    *   @makeup.just.for.fun on 2025-11-18 (Image) - Shared a detailed flatlay and initial thoughts on the collection. Link: https://www.instagram.com/p/DRM8e8CkUfJ/
-    *   @deandranicoleee on 2025-11-18 (Video) - Featured the palette in a close-up video to highlight its shades. Link: https://www.instagram.com/p/DRNqFTcgBUB/
-    *   @heatheraustinmakeup on 2025-11-18 (Image) - Unveiled the new collection in a creative product flatlay. Link: https://www.instagram.com/p/DRN46wmDsSe/
-    *   @angeschka on 2025-11-18 (Video) - Demonstrated the palette's shades with detailed arm swatches. Link: https://www.instagram.com/p/DRN5Ns6jbMN/
-    *   @s.andromedae on 2025-11-18 (Image) - Created a gorgeous, warm-toned eye look using the palette. Link: https://www.instagram.com/p/DROCq8gkY2y/
-    *   @s.andromedae on 2025-11-19 (Image) - Shared a close-up of a completed eye look created with the palette. Link: https://www.instagram.com/p/DRP9Z6wEZVL/
-    *   @noopur_makeup on 2025-11-19 (Sidecar) - Provided a detailed review and swatches, highlighting the shimmer-heavy formula. Link: https://www.instagram.com/p/DRQHHW1Ermu/
-    *   @deandranicoleee on 2025-11-19 (Video) - Showcased the palette and its accompanying singles in a product video. Link: https://www.instagram.com/p/DRQZO-tALG0/
-    *   @s.andromedae on 2025-11-22 (Image) - Created a glittery eye look featuring the palette's shades. Link: https://www.instagram.com/p/DRXiXjzkT2Z/
-    *   @s.andromedae on 2025-11-22 (Image) - Featured in a close-up shot of a completed, artistic eye look. Link: https://www.instagram.com/p/DRYV6GtESQD/
+    *   [@deandranicoleee](https://www.instagram.com/p/DRKxK2dEf2a/) - Swatched and introduced the new Artificer collection.
+    *   [@makeup.just.for.fun](https://www.instagram.com/p/DRM8e8CkUfJ/) - Showcased the full Artificer collection, highlighting the palette's creative vision.
+    *   [@deandranicoleee](https://www.instagram.com/p/DRNqFTcgBUB/) - Showcased the Artificer palette in a close-up video.
+    *   [@heatheraustinmakeup](https://www.instagram.com/p/DRN46wmDsSe/) - Featured in a flatlay announcing the collection's launch.
+    *   [@angeschka](https://www.instagram.com/p/DRN5Ns6jbMN/) - Swatched the new Artificer palette in a video.
+    *   [@s.andromedae](https://www.instagram.com/p/DROCq8gkY2y/) - Used to create a gorgeous, warm-toned eye look.
+    *   [@s.andromedae](https://www.instagram.com/p/DRP9Z6wEZVL/) - Featured in a close-up of a detailed eye look.
+    *   [@noopur_makeup](https://www.instagram.com/p/DRQHHW1Ermu/) - Swatched and reviewed the palette, highlighting its shimmer-heavy formula.
+    *   [@s.andromedae](https://www.instagram.com/p/DRXiXjzkT2Z/) - Used as the base for a stunning glittery eye look.
 
 *   **Beauty Below eyeshadow palette by BLEND BUNNY COSMETICS**
-    *   @deandranicoleee on 2025-11-21 (Video) - Highlighted as a must-have mermaid-themed palette with excellent depth for dark skin tones. Link: https://www.instagram.com/p/DRVmmqzAEXJ/
-
-*   **Blends eyeshadow palette by BLEND BUNNY COSMETICS**
-    *   @deandranicoleee on 2025-11-18 (Sidecar) - Used to recreate a colorful and creative look from a face chart. Link: https://www.instagram.com/p/DRNJ86QgNlR/
+    *   [@deandranicoleee](https://www.instagram.com/p/DRVmmqzAEXJ/) - Praised for its depth and suitability for dark skin tones in a mermaid-themed palette.
 
 *   **Come Play with Us eyeshadow palette by BELLABEAUTEBAR**
-    *   @angeschka on 2025-11-20 (Video) - Created a stunning, monochromatic red eyeshadow look in a tutorial. Link: https://www.instagram.com/p/DRR3iFlDf2I/
+    *   [@angeschka](https://www.instagram.com/p/DRR3iFlDf2I/) - Created a bold, monochromatic red eyeshadow look in a video tutorial.
 
 *   **Ellis V2: The Garden of Stars shimmer eye & face palette by BLEND BUNNY COSMETICS**
-    *   @deandranicoleee on 2025-11-21 (Video) - Praised as a versatile, multi-purpose shimmer palette for eyes, lips, and face. Link: https://www.instagram.com/p/DRVmmqzAEXJ/
+    *   [@deandranicoleee](https://www.instagram.com/p/DRVmmqzAEXJ/) - Highlighted as a multi-purpose shimmer palette for eyes, lips, and face.
 
 *   **Evocative lip liner by SINGE BEAUTY**
-    *   @xanderbehr on 2025-11-18 (Video) - Used the shade "Optimistic Oak" to create a grungy lip combo for a blue smokey eye. Link: https://www.instagram.com/p/DRNl2gJD8Uk/
+    *   [@xanderbehr](https://www.instagram.com/p/DRNl2gJD8Uk/) - Used to create a grungy lip combo in a video tutorial.
 
 *   **Forget Me Not eyeshadow/face palette by BLEND BUNNY COSMETICS**
-    *   @linsmakeuplooks on 2025-11-17 (Video) - Featured in a product list for a pink, coquette-style makeup look. Link: https://www.instagram.com/p/DRKXADvEQuX/
-    *   @linsmakeuplooks on 2025-11-17 (Video) - Used to create a colorful pastel eye look in a detailed tutorial. Link: https://www.instagram.com/p/DRLH7SYAdJ4/
-
-*   **Lins x Glisten Juicy Tint by GLISTEN COSMETICS**
-    *   @s.andromedae on 2025-11-21 (Image) - Applied the "blackberry" shade for a glossy, finishing touch to the lips. Link: https://www.instagram.com/p/DRU2tZtEQe3/
+    *   [@linsmakeuplooks](https://www.instagram.com/p/DRKXADvEQuX/) - Used to create a soft, pink coquette-style eye look.
+    *   [@linsmakeuplooks](https://www.instagram.com/p/DRLH7SYAdJ4/) - Featured in an eyeshadow tutorial for adding a pop of color.
 
 *   **Lins x Glisten single wet liner palette by GLISTEN COSMETICS**
-    *   @linsmakeuplooks on 2025-11-21 (Video) - Used in a 'get ready with me' video to complete a pastel eye look. Link: https://www.instagram.com/p/DRUo8SQDjID/
+    *   [@linsmakeuplooks](https://www.instagram.com/p/DRUo8SQDjID/) - Used in a detailed GRWM video to create a pastel look.
 
 *   **Longing eyeshadow palette by BLEND BUNNY COSMETICS**
-    *   @deandranicoleee on 2025-11-21 (Video) - Recommended for creating beautiful looks with muted tones and pastels on deeper skin tones. Link: https://www.instagram.com/p/DRVmmqzAEXJ/
+    *   [@deandranicoleee](https://www.instagram.com/p/DRVmmqzAEXJ/) - Recommended for its beautiful muted tones and high-quality pastel formula.
 
 *   **Magnetic Mineralia eyeshadow palette x @s.andromedae by DIEVERUNE COSMETICS**
-    *   @s.andromedae on 2025-11-21 (Image) - Used the matte shades from her collaboration palette as a base for a glittery eye look. Link: https://www.instagram.com/p/DRU2tZtEQe3/
-    *   @s.andromedae on 2025-11-21 (Image) - Featured the matte shades in a close-up of a creative, colorful eye look. Link: https://www.instagram.com/p/DRVhQ8AEWbf/
+    *   [@s.andromedae](https://www.instagram.com/p/DRU2tZtEQe3/) - Used the matte shades to create a glittery eye look.
 
 *   **Masterclass Pro cheek palette by BLEND BUNNY COSMETICS**
-    *   @deandranicoleee on 2025-11-21 (Video) - Recommended as a top blush palette pick for deeper complexions during a Black Friday sale feature. Link: https://www.instagram.com/p/DRVmmqzAEXJ/
+    *   [@deandranicoleee](https://www.instagram.com/p/DRVmmqzAEXJ/) - Named as their most-used and highly recommended blush palette of the year.
 
 *   **Rotten eyeshadow palette by BLEND BUNNY COSMETICS**
-    *   @deandranicoleee on 2025-11-21 (Video) - Highly recommended for its unique in-between shades, perfect for seamless blending on dark skin. Link: https://www.instagram.com/p/DRVmmqzAEXJ/
+    *   [@deandranicoleee](https://www.instagram.com/p/DRVmmqzAEXJ/) - Recommended as a top pick for darker complexions in a Black Friday sale guide.
 
 *   **Shape Shifter highlight palette by GLISTEN COSMETICS**
-    *   @glamsmitty on 2025-11-18 (Video) - Swatched the iridescent shades from the aesthetic and ethereal palette. Link: https://www.instagram.com/p/DRML0u4EVMw/
+    *   [@glamsmitty](https://www.instagram.com/p/DRML0u4EVMw/) - Featured in a video trying out the iridescent palette.
 
 *   **Sickly Sweet eyeshadow palette by BLEND BUNNY COSMETICS**
-    *   @linsmakeuplooks on 2025-11-17 (Video) - Used in a 'get ready with me' makeup routine for a pink coquette look. Link: https://www.instagram.com/p/DRKXADvEQuX/
-    *   @linsmakeuplooks on 2025-11-17 (Video) - Featured in an eyeshadow tutorial for a go-to neutral and pastel look. Link: https://www.instagram.com/p/DRLH7SYAdJ4/
-    *   @linsmakeuplooks on 2025-11-21 (Video) - Used to create a soft pastel eye look in a 'get ready with me' video. Link: https://www.instagram.com/p/DRUo8SQDjID/
+    *   [@linsmakeuplooks](https://www.instagram.com/p/DRKXADvEQuX/) - Featured in a detailed GRWM video for a pink coquette look.
+    *   [@linsmakeuplooks](https://www.instagram.com/p/DRLH7SYAdJ4/) - Used in an eyeshadow tutorial to create their go-to look.
+    *   [@linsmakeuplooks](https://www.instagram.com/p/DRUo8SQDjID/) - Featured in a GRWM video for a pastel winter makeup look.
 
 *   **Skin of a Killer highlighter by BELLABEAUTEBAR**
-    *   @deandranicoleee on 2025-11-18 (Sidecar) - Applied to the center of the eyelid to add a pop of highlight to a rainbow look. Link: https://www.instagram.com/p/DRNJ86QgNlR/
+    *   [@deandranicoleee](https://www.instagram.com/p/DRNJ86QgNlR/) - Applied to the center of the eye for a creative, colorful look.
 
 *   **Speckled Pen - freckle pen by GLISTEN COSMETICS**
-    *   @s.andromedae on 2025-11-17 (Image) - Used the taupe and russet pens to create natural-looking faux freckles. Link: https://www.instagram.com/p/DRLQAT0EQxa/
-    *   @s.andromedae on 2025-11-18 (Image) - Featured in a full face look to add a delicate faux freckle effect. Link: https://www.instagram.com/p/DROCq8gkY2y/
-    *   @s.andromedae on 2025-11-21 (Image) - Applied to achieve a faux freckle effect in a glittery, colorful eye look. Link: https://www.instagram.com/p/DRU2tZtEQe3/
-    *   @s.andromedae on 2025-11-23 (Sidecar) - Used to add the finishing touch of faux freckles to a moody makeup look. Link: https://www.instagram.com/p/DRauigukUyE/
+    *   [@s.andromedae](https://www.instagram.com/p/DRLQAT0EQxa/) - Used to create natural-looking freckles for a complete look.
+    *   [@s.andromedae](https://www.instagram.com/p/DROCq8gkY2y/) - Applied to complete a full face look.
+    *   [@s.andromedae](https://www.instagram.com/p/DRU2tZtEQe3/) - Applied for a freckled effect in a full face look.
+    *   [@s.andromedae](https://www.instagram.com/p/DRauigukUyE/) - Used to add freckles to a full face look.
 
 *   **Spectra Lash mascara by GLISTEN COSMETICS**
-    *   @leealtringer on 2025-11-20 (Video) - Used the maroon mascara to complete a soft, pink monochromatic look. Link: https://www.instagram.com/p/DRTBO2JEpvF/
+    *   [@leealtringer](https://www.instagram.com/p/DRTBO2JEpvF/) - Used the maroon shade to complete a soft, monochromatic pink makeup look.
 
 *   **Spectra Pencil by GLISTEN COSMETICS**
-    *   @courtneyquarantine on 2025-11-18 (Video) - Used the black pencil as a lip liner to create a cool-toned grunge lip combo. Link: https://www.instagram.com/p/DRN51jEgSY7/
-    *   @courtneyquarantine on 2025-11-22 (Video) - Layered the black pencil to define a glossy, grunge-inspired lip look. Link: https://www.instagram.com/p/DRYYIkoicm4/
+    *   [@courtneyquarantine](https://www.instagram.com/p/DRN51jEgSY7/) - Used as a black lip liner to create a cool-toned grunge lip combo.
+    *   [@courtneyquarantine](https://www.instagram.com/p/DRYYIkoicm4/) - Layered as a black lip liner to create a glossy, grungy lip combo.
