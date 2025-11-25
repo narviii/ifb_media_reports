@@ -1,86 +1,99 @@
 ### Influencer Mentions
-Reporting period: October 27, 2025 to November 2, 2025
-
-*   **Come Play with Us eyeshadow palette by BELLABEAUTEBAR**
-    *   [@xanderbehr](https://www.instagram.com/p/DQUqUtDj-J5/) on 2025-10-27 (Video) - Created a detailed green and red graphic liner tutorial using multiple matte and shimmer shades from the palette.
-    *   [@s.andromedae](https://www.instagram.com/p/DQcMK6SkXQ/) on 2025-10-30 (Image) - Featured the palette in a creative and colorful eye look.
-    *   [@s.andromedae](https://www.instagram.com/p/DQewfZskWj_/) on 2025-10-31 (Image) - Used the palette to create a striking eye look, paired with a bold lip combination.
-
-*   **Dark Dreamscape highlighter by BELLABEAUTEBAR**
-    *   [@glamsmitty](https://www.instagram.com/p/DQVH3shknD0/) on 2025-10-27 (Video) - Swatched and featured as a top dreamy blue highlighter for 2025.
-    *   [@glamsmitty](https://www.instagram.com/p/DQgSacsDub0/) on 2025-10-31 (Video) - Included in a video roundup showcasing favorite blue highlighters of 2025.
-
-*   **Morally Grey eyeshadow palette by BELLABEAUTEBAR**
-    *   [@linsmakeuplooks](https://www.instagram.com/p/DQXkOiZgfsk/) on 2025-10-28 (Video) - Used the palette in a get-ready-with-me video to create a cool-toned eye look.
-    *   [@linsmakeuplooks](https://www.instagram.com/p/DQZTgXMDqXh/) on 2025-10-29 (Video) - Showcased the palette in a get-ready-with-me video while sharing a personal update.
-    *   [@linsmakeuplooks](https://www.instagram.com/p/DQZgYEdDoen/) on 2025-10-29 (Video) - Created a black smokey eye with bone-like white liner details for a spooky look, using the grey shades for blending.
-
-*   **Blue Tears lip glaze by BLEND BUNNY COSMETICS**
-    *   [@glamsmitty](https://www.instagram.com/p/DQYjMMSkQRR/) on 2025-10-28 (Video) - Showcased in a video roundup of favorite new sparkly blue glosses.
-    *   [@s.andromedae](https://www.instagram.com/p/DQZqQDsETgU/) on 2025-10-29 (Image) - Applied over a lipstick to create a unique, cool-toned lip look.
+Reporting Period: October 27, 2025 to November 02, 2025
 
 *   **Ellis V2: The Garden of Stars shimmer eye & face palette by BLEND BUNNY COSMETICS**
-    *   [@sinireviews](https://www.instagram.com/p/DQUzm3yjJkg/) on 2025-10-27 (Sidecar) - Showcased the palette's fine, sparkly shimmers in a flatlay, noting they are great for everyday looks without creasing.
+    *   [@sinireviews](https://www.instagram.com/p/DQUzm3yjJkg/) - Showcased the palette's fine, sparkly shimmers and praised their effortless look for everyday wear.
 
-*   **Mei Pang x Blend Bunny full collection by BLEND BUNNY COSMETICS**
-    *   [@deandranicoleee](https://www.instagram.com/p/DQaCg1QEj_B/) on 2025-10-29 (Video) - Showcased the eyeshadow palette from the collection in a short, aesthetic video.
+*   **Come Play with Us eyeshadow palette by BELLABEAUTEBAR**
+    *   [@xanderbehr](https://www.instagram.com/p/DQUqUtDj-J5/) - Shared a detailed tutorial creating a red and green graphic liner look with the palette.
+    *   [@s.andromedae](https://www.instagram.com/p/DQcMK6SkXkQ/) - Featured the palette in a creative eye look.
+    *   [@s.andromedae](https://www.instagram.com/p/DQewfZskWj_/) - Created a bold eye look paired with a unique lip combo.
 
-*   **Sickly Sweet eyeshadow palette by BLEND BUNNY COSMETICS**
-    *   [@linsmakeuplooks](https://www.instagram.com/p/DQdIecZDljC/) on 2025-10-30 (Video) - Featured in a get-ready-with-me video to create a colorful eye look matching a rainbow outfit.
+*   **Morally Grey eyeshadow palette by BELLABEAUTEBAR**
+    *   [@linsmakeuplooks](https://www.instagram.com/p/DQkXOiZgfsk/) - Used the palette in a get-ready-with-me style video.
+    *   [@linsmakeuplooks](https://www.instagram.com/p/DQZTgXMDqXh/) - Featured the palette in a makeup look while sharing a personal update.
+    *   [@linsmakeuplooks](https://www.instagram.com/p/DQZgYEdDoen/) - Created a black smokey eye with bone-themed graphic liner in a tutorial.
 
-*   **Bizarre Botanicals eyeshadow palette by DIEVERUNE COSMETICS**
-    *   [@noopur_makeup](https://www.instagram.com/p/DQcXqEEEmT0/) on 2025-10-30 (Video) - Used the palette's pink mattes and shimmers to create a vibrant pink and purple eye look.
-
-*   **Bizarre Botanicals Gloomy lip gloss by DIEVERUNE COSMETICS**
-    *   [@glamsmitty](https://www.instagram.com/p/DQYjMMSkQRR/) on 2025-10-28 (Video) - Showcased in a video roundup of favorite new sparkly blue glosses.
-    *   [@glamsmitty](https://www.instagram.com/p/DQkbOuykTv4/) on 2025-11-02 (Video) - Featured in a video highlighting a moody set of blue lip glosses.
-
-*   **Bizarre Botanicals Melancholy lip mud by DIEVERUNE COSMETICS**
-    *   [@xanderbehr](https://www.instagram.com/p/DQVJ_y-DeOe/) on 2025-10-27 (Video) - Applied the 'Gray Lily' shade to the center of the lips, sheering it out to create an ultra-cool nude base.
+*   **Dark Dreamscape highlighter by BELLABEAUTEBAR**
+    *   [@glamsmitty](https://www.instagram.com/p/DQgSacsDub0/) - Featured the highlighter in a video roundup of favorite blue highlighters.
 
 *   **Highlighter by DIEVERUNE COSMETICS**
-    *   [@s.andromedae](https://www.instagram.com/p/DQUgAqyEQm1/) on 2025-10-27 (Image) - Used the 'Ghost Orchid' highlighter on the face and cupid's bow for a striking glow.
-    *   [@glamsmitty](https://www.instagram.com/p/DQVH3shknD0/) on 2025-10-27 (Video) - Swatched the 'Ghost Orchid' shade and featured it as a top dreamy blue highlighter for 2025.
-    *   [@s.andromedae](https://www.instagram.com/p/DQVd_HHkY4B/) on 2025-10-27 (Image) - Applied the 'Ghost Orchid' highlighter to the cupid's bow to complete a lip look.
-    *   [@glamsmitty](https://www.instagram.com/p/DQgSacsDub0/) on 2025-10-31 (Video) - Included the 'Ghost Orchid' shade in a video roundup showcasing favorite blue highlighters of 2025.
+    *   [@s.andromedae](https://www.instagram.com/p/DQUgAqyEQm1/) - Used the Ghost Orchid shade as a highlight on the face and cupid's bow.
+    *   [@glamsmitty](https://www.instagram.com/p/DQVH3shknD0/) - Swatched the Ghost Orchid shade in a video comparing dreamy blue highlighters.
+    *   [@s.andromedae](https://www.instagram.com/p/DQVd_HHkY4B/) - Applied the Ghost Orchid shade to the cupid's bow for a finishing touch.
+    *   [@glamsmitty](https://www.instagram.com/p/DQgSacsDub0/) - Showcased the Ghost Orchid shade in a video compilation of top blue highlighters for 2025.
 
-*   **Lins x Glisten Juicy Tint by GLISTEN COSMETICS**
-    *   [@linsmakeuplooks](https://www.instagram.com/p/DQkyk0HjjP_/) on 2025-11-02 (Video) - Applied the 'Peach' shade as part of a glossy lip combo for a birthday-themed look.
+*   **Bizarre Botanicals Melancholy lip mud by DIEVERUNE COSMETICS**
+    *   [@xanderbehr](https://www.instagram.com/p/DQVJ_y-DeOe/) - Used the Grey Lily shade in a tutorial to create a cool-toned, 'dead lip' combo.
 
-*   **Lins x Glisten single wet liner palette by GLISTEN COSMETICS**
-    *   [@linsmakeuplooks](https://www.instagram.com/p/DQVTOkCjiwn/) on 2025-10-27 (Video) - Used the white and purple shades to create a detailed cow print graphic eyeliner look.
+*   **Bizarre Botanicals Gloomy lip gloss by DIEVERUNE COSMETICS**
+    *   [@glamsmitty](https://www.instagram.com/p/DQYjMMSkQRR/) - Featured the gloss in a video showcasing new favorite sparkly blue glosses.
+    *   [@glamsmitty](https://www.instagram.com/p/DQkbOuykTv4/) - Included the gloss in a video roundup of moody blue lip glosses.
 
-*   **Speckled Pen - freckle pen by GLISTEN COSMETICS**
-    *   [@s.andromedae](https://www.instagram.com/p/DQUgAqyEQm1/) on 2025-10-27 (Image) - Used to create natural-looking faux freckles as part of a full face look.
-    *   [@s.andromedae](https://www.instagram.com/p/DQXRh3nkSoW/) on 2025-10-28 (Image) - Applied to add a delicate, speckled freckle effect to the makeup look.
-    *   [@s.andromedae](https://www.instagram.com/p/DQZqQDsETgU/) on 2025-10-29 (Image) - Used to create subtle faux freckles to enhance a soft, ethereal makeup look.
-    *   [@s.andromedae](https://www.instagram.com/p/DQewfZskWj_/) on 2025-10-31 (Image) - Added faux freckles to complete a creative and colorful makeup look.
-    *   [@s.andromedae](https://www.instagram.com/p/DQj9k7hEaep/) on 2025-11-02 (Image) - Applied to create a natural freckled appearance for a clown-inspired look.
-
-*   **Spectra Pencil by GLISTEN COSMETICS**
-    *   [@courtneyquarantine](https://www.instagram.com/p/DQacMA6AR5F/) on 2025-10-29 (Video) - Used the black pencil to define the outer corners of the lips in a tutorial for a most-worn lip combo.
-
-*   **Dexter eyeshadow palette by LETHAL COSMETICS**
-    *   [@s.andromedae](https://www.instagram.com/p/DQUgAqyEQm1/) on 2025-10-27 (Image) - Used on the eyes and lips for a complete look inspired by the collection.
-    *   [@s.andromedae](https://www.instagram.com/p/DQVd_HHkY4B/) on 2025-10-27 (Image) - Used a shimmer from the palette as a lipstick topper for a dramatic effect.
-
-*   **Dexter lip stain by LETHAL COSMETICS**
-    *   [@s.andromedae](https://www.instagram.com/p/DQUgAqyEQm1/) on 2025-10-27 (Image) - Applied the 'Born in Blood' lip stain as part of a dark, shimmery lip look.
-    *   [@s.andromedae](https://www.instagram.com/p/DQVd_HHkY4B/) on 2025-10-27 (Image) - Featured the 'Born in Blood' lip stain in a close-up shot of a dark lip look.
-
-*   **Evocative lip liner by SINGE BEAUTY**
-    *   [@xanderbehr](https://www.instagram.com/p/DQVJ_y-DeOe/) on 2025-10-27 (Video) - Layered the shades 'Ambitious Ash' and 'Optimistic Oak' to create a contoured, cool-toned lip base.
-
-*   **Gothic Romance Incandescent blush palette by UNEARTHLY COSMETICS**
-    *   [@s.andromedae](https://www.instagram.com/p/DQXRh3nkSoW/) on 2025-10-28 (Image) - Used the blush palette to add definition to the back of the blush application.
-
-*   **Gothic Romance eyeshadow palette by UNEARTHLY COSMETICS**
-    *   [@s.andromedae](https://www.instagram.com/p/DQXRh3nkSoW/) on 2025-10-28 (Image) - Praised the high pigmentation of the pastel lilac matte shade in a soft, blended eye look.
-
-*   **Lipliner by UNEARTHLY COSMETICS**
-    *   [@s.andromedae](https://www.instagram.com/p/DQUgAqyEQm1/) on 2025-10-27 (Image) - Used the 'Doom' lip liner as the base for a dark, shimmery lip look.
-    *   [@s.andromedae](https://www.instagram.com/p/DQVd_HHkY4B/) on 2025-10-27 (Image) - Featured the 'Doom' lip liner in a close-up shot of a dark lip look.
+*   **Bizarre Botanicals eyeshadow palette by DIEVERUNE COSMETICS**
+    *   [@noopur_makeup](https://www.instagram.com/p/DQcXqEEEmT0/) - Created a pink and purple eye look using the palette's matte and shimmer shades.
 
 *   **Menacing Metals lipstick by UNEARTHLY COSMETICS**
-    *   [@xanderbehr](https://www.instagram.com/p/DQVJ_y-DeOe/) on 2025-10-27 (Video) - Used the shade 'Dragonfly' as a metallic center-lip topper in a cool-toned, 'dead lip' combo tutorial.
-    *   [@s.andromedae](https://www.instagram.com/p/DQewfZskWj_/) on 2025-10-31 (Image) - Featured the 'Dragonfly' shade as part of an obsessed-worthy lip combination.
+    *   [@xanderbehr](https://www.instagram.com/p/DQVJ_y-DeOe/) - Layered the Dragonfly shade in the center of the lips for a unique green shimmer finish.
+    *   [@s.andromedae](https://www.instagram.com/p/DQewfZskWj_/) - Combined the Dragonfly shade with a matte lipstick to create a dimensional lip look.
+
+*   **Lipliner by UNEARTHLY COSMETICS**
+    *   [@s.andromedae](https://www.instagram.com/p/DQUgAqyEQm1/) - Used the Doom lip liner to define the lips for a complete makeup look.
+    *   [@s.andromedae](https://www.instagram.com/p/DQVd_HHkY4B/) - Featured the Doom lip liner as the base for a dark, shimmery lip.
+
+*   **Gothic Romance eyeshadow palette by UNEARTHLY COSMETICS**
+    *   [@s.andromedae](https://www.instagram.com/p/DQXRh3nkSoW/) - Praised the high pigmentation of the pastel lilac matte shade in a soft, smoky eye look.
+
+*   **Gothic Romance Incandescent blush palette by UNEARTHLY COSMETICS**
+    *   [@s.andromedae](https://www.instagram.com/p/DQXRh3nkSoW/) - Used the blush palette to add definition to the back of the cheekbones.
+
+*   **Dexter eyeshadow palette by LETHAL COSMETICS**
+    *   [@s.andromedae](https://www.instagram.com/p/DQUgAqyEQm1/) - Created a striking eye and lip look using shades from the palette.
+    *   [@s.andromedae](https://www.instagram.com/p/DQVd_HHkY4B/) - Applied shimmer from the palette over a lip stain for a metallic effect.
+
+*   **Dexter lip stain by LETHAL COSMETICS**
+    *   [@s.andromedae](https://www.instagram.com/p/DQUgAqyEQm1/) - Featured the Born in Blood lip stain as the base for a shimmer lip look.
+    *   [@s.andromedae](https://www.instagram.com/p/DQVd_HHkY4B/) - Used the Born in Blood lip stain in a close-up feature of a bold lip combo.
+
+*   **Lins x Glisten single wet liner palette by GLISTEN COSMETICS**
+    *   [@linsmakeuplooks](https://www.instagram.com/p/DQVTOkCjiwn/) - Created a purple cow print graphic eyeliner look in a detailed tutorial.
+    *   [@linsmakeuplooks](https://www.instagram.com/p/DQkyk0HjjP_/) - Used the liner palette to create a festive look for a birthday celebration.
+
+*   **Speckled Pen - freckle pen by GLISTEN COSMETICS**
+    *   [@s.andromedae](https://www.instagram.com/p/DQUgAqyEQm1/) - Applied the taupe and russet pens to create natural-looking faux freckles.
+    *   [@s.andromedae](https://www.instagram.com/p/DQXRh3nkSoW/) - Used the speckled pens to add a finishing touch to a pastel makeup look.
+    *   [@s.andromedae](https://www.instagram.com/p/DQZqQDsETgU/) - Added faux freckles to complete a soft, ethereal makeup look.
+    *   [@s.andromedae](https://www.instagram.com/p/DQewfZskWj_/) - Applied the speckled pens as part of a full-face makeup application.
+    *   [@s.andromedae](https://www.instagram.com/p/DQj9k7hEaep/) - Used the taupe and russet pens to create a freckled effect.
+
+*   **Spectra Pencil by GLISTEN COSMETICS**
+    *   [@courtneyquarantine](https://www.instagram.com/p/DQacMA6AR5F/) - Used the black pencil to define the corners of the lips in a lip combo tutorial.
+
+*   **Lins x Glisten Juicy Tint by GLISTEN COSMETICS**
+    *   [@linsmakeuplooks](https://www.instagram.com/p/DQkyk0HjjP_/) - Applied the Peach juicy tint as part of a birthday-themed get-ready-with-me video.
+
+*   **Blue Tears lip glaze by BLEND BUNNY COSMETICS**
+    *   [@glamsmitty](https://www.instagram.com/p/DQYjMMSkQRR/) - Highlighted the lip glaze in a video of new favorite sparkly blue glosses.
+    *   [@s.andromedae](https://www.instagram.com/p/DQZqQDsETgU/) - Layered the gloss over a lipstick for a unique, cool-toned lip finish.
+    *   [@glamsmitty](https://www.instagram.com/p/DQkbOuykTv4/) - Featured the gloss in a video showcasing moody and unique blue lip glosses.
+
+*   **Mei Pang x Blend Bunny full collection by BLEND BUNNY COSMETICS**
+    *   [@deandranicoleee](https://www.instagram.com/p/DQaCg1QEj_B/) - Showcased the collection in a short, aesthetic video feature.
+
+*   **Sickly Sweet eyeshadow palette by BLEND BUNNY COSMETICS**
+    *   [@linsmakeuplooks](https://www.instagram.com/p/DQdIecZDljC/) - Used the palette to create a colorful eye look as part of a pastel-themed outfit.
+
+*   **Lins x Blend Bunny single eyeshadow palette by BLEND BUNNY COSMETICS**
+    *   [@linsmakeuplooks](https://www.instagram.com/p/DQkyk0HjjP_/) - Featured the palette in a get-ready-with-me video for a birthday celebration.
+
+*   **Lins x Blend Bunny lashes by BLEND BUNNY COSMETICS**
+    *   [@linsmakeuplooks](https://www.instagram.com/p/DQkyk0HjjP_/) - Wore the lashes to complete a birthday-themed makeup look.
+
+*   **Evocative lip liner by SINGE BEAUTY**
+    *   [@xanderbehr](https://www.instagram.com/p/DQVJ_y-DeOe/) - Used shades Ambitious Ash and Optimistic Oak in a lip combo tutorial, noting their smooth application.
+
+*   **Face brush F01 by SINGE BEAUTY**
+    *   [@heatheraustinmakeup](https://www.instagram.com/p/DQhYZbeicOJ/) - Used the brushes in a tutorial for a holiday-themed makeup look.
+
+*   **Pacific Northwest eyeshadow palette by NOMAD COSMETICS**
+    *   [@makeup.just.for.fun](https://www.instagram.com/p/DQWm3dhEVCt/) - Shared product shots of the palette, praising its grungy and desaturated color story.
