@@ -1,17 +1,22 @@
 ### Influencer Mentions
-Reporting Period: 2025-10-13 to 2025-10-19
+Reporting Period: October 13, 2025 to October 19, 2025
 
 *   **Apocalypse lip gloss by KRYPTEIN COSMETICS**
-    *   [@noopur_makeup](https://www.instagram.com/p/DPxGj4_ku67/) - swatched the glosses from the collection, noting their beautiful and prominent sparkle.
-    *   [@noopur_makeup](https://www.instagram.com/p/DP7Dk1HEsXa/) - created a custom lip color by mixing three shades from the collection for a complete look.
+    *   [@noopur_makeup](https://www.instagram.com/p/DPxGj4_ku67/) - Swatched the sparkling glosses from the Apocalypse collection.
+    *   [@noopur_makeup](https://www.instagram.com/p/DP7Dk1HEsXa/) - Mixed several gloss shades to create a custom sparkling lip color for a full look.
+
 *   **Coalescence x noopur_makeup eyeshadow palette by BELLABEAUTEBAR**
-    *   [@noopur_makeup](https://www.instagram.com/p/DP1wbcdki9m/) - created a sparkly, ethereal fall makeup look using the palette.
+    *   [@noopur_makeup](https://www.instagram.com/p/DP1wbcdki9m/) - Created a sparkly green eyeshadow look perfect for a fall aesthetic.
+
 *   **Evocative silk blush by SINGE BEAUTY**
-    *   [@noopur_makeup](https://www.instagram.com/p/DP7Dk1HEsXa/) - applied the blush to the cheeks as part of a full indie makeup look.
+    *   [@noopur_makeup](https://www.instagram.com/p/DP7Dk1HEsXa/) - Featured the blush as part of a complete indie makeup look.
+
 *   **Highlighter by DIEVERUNE COSMETICS**
-    *   [@noopur_makeup](https://www.instagram.com/p/DP7Dk1HEsXa/) - used the highlighter on the cheeks to complete their colorful makeup look.
+    *   [@noopur_makeup](https://www.instagram.com/p/DP7Dk1HEsXa/) - Applied the highlighter to achieve a glowing cheek finish.
+
 *   **Rhnull eyeshadow palette by ADEPT COSMETICS**
-    *   [@noopur_makeup](https://www.instagram.com/p/DP98g8YkiSK/) - shared a detailed review, showcasing its pigmented mattes and super sparkly shimmers.
+    *   [@noopur_makeup](https://www.instagram.com/p/DP98g8YkiSK/) - Shared detailed swatches and a review of the palette's grunge-neutral shimmers and mattes.
+
 *   **Seraph eyeshadow palette by KRYPTEIN COSMETICS**
-    *   [@noopur_makeup](https://www.instagram.com/p/DPxGj4_ku67/) - reviewed the palette, highlighting its buttery mattes and creamy shimmers in a detailed swatch post.
-    *   [@noopur_makeup](https://www.instagram.com/p/DP7Dk1HEsXa/) - featured the palette in a colorful, glittery red eyeshadow look.
+    *   [@noopur_makeup](https://www.instagram.com/p/DPxGj4_ku67/) - Showcased the palette's buttery mattes and creamy shimmers in a detailed swatch post.
+    *   [@noopur_makeup](https://www.instagram.com/p/DP7Dk1HEsXa/) - Used the palette to create a colorful and glittery red eyeshadow look.
