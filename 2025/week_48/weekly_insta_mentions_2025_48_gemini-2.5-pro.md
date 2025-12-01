@@ -1,59 +1,89 @@
 ### Influencer Mentions
-Reporting period: November 24, 2025 - November 28, 2025
 
-*   **Sickly Sweet eyeshadow palette by BLEND BUNNY COSMETICS**
-    *   [@linsmakeuplooks](https://www.instagram.com/p/DRdKPTogWqE/) - used the palette to create a pastel winter snowflake eye look.
-
-*   **Poison Garden eyeshadow palette by BELLABEAUTEBAR**
-    *   [@deandranicoleee](https://www.instagram.com/p/DRdX5kLAO7R/) - recommended the palette for deep skin tones, highlighting its unmatched color story and phenomenal shimmers.
-
-*   **Dark Dreamscape eyeshadow palette by BELLABEAUTEBAR**
-    *   [@deandranicoleee](https://www.instagram.com/p/DRdX5kLAO7R/) - featured as a favorite, praising its mix of pastel and dark mattes that work beautifully on deep skin.
-
-*   **Ocean Jewel eyeshadow palette by BELLABEAUTEBAR**
-    *   [@deandranicoleee](https://www.instagram.com/p/DRdX5kLAO7R/) - showcased the palette's vibrant purple, blue, and neon shades as a must-have.
-
-*   **Unoriginal Nudes eyeshadow palette by BELLABEAUTEBAR**
-    *   [@deandranicoleee](https://www.instagram.com/p/DRdX5kLAO7R/) - recommended for its fun shimmers and neutral-leaning mattes, perfect for everyday looks.
-
-*   **Ultra Violet eyeshadow palette by BELLABEAUTEBAR**
-    *   [@deandranicoleee](https://www.instagram.com/p/DRdX5kLAO7R/) - mentioned as a standout collaborator palette included in the brand's sale.
-
-*   **Realm of Fairies eyeshadow palette by BELLABEAUTEBAR**
-    *   [@deandranicoleee](https://www.instagram.com/p/DRdX5kLAO7R/) - highlighted as one of three collaborator palettes from women of color.
+Reporting period: 2025-11-24 to 2025-11-30
 
 *   **Coalescence x noopur_makeup eyeshadow palette by BELLABEAUTEBAR**
-    *   [@deandranicoleee](https://www.instagram.com/p/DRdX5kLAO7R/) - named as a must-have collaborator palette available during the brand's sale.
+    *   [@deandranicoleee](https://www.instagram.com/p/DRdX5kLAO7R/) - Highlights the palette as a noteworthy collaborator feature available during the brand's sale.
 
-*   **Dream lip sparkle balm by BELLABEAUTEBAR**
-    *   [@deandranicoleee](https://www.instagram.com/p/DRdX5kLAO7R/) - briefly featured the product's iridescent packaging in a collection overview.
+*   **Dark Dreamscape eyeshadow palette by BELLABEAUTEBAR**
+    *   [@deandranicoleee](https://www.instagram.com/p/DRdX5kLAO7R/) - Features the palette as a favorite, noting its mix of pastel and dark mattes that work well on deep skin.
+
+*   **Dark Dreamscape highlighter by BELLABEAUTEBAR**
+    *   [@s.andromedae](https://www.instagram.com/p/DRc6uhwkZh1/) - Applies the highlighter on the face and lips for a luminous, monochromatic pink look.
+    *   [@s.andromedae](https://www.instagram.com/p/DRgAiM2EQ3Z/) - Uses the highlighter on the brow bone and cheek to complement a sparkling pink glitter eye look.
 
 *   **Festive Elegance eyeshadow palette by DEDE'S SIGNATURE**
-    *   [@heatheraustinmakeup](https://www.instagram.com/p/DRdhnF_jtqp/) - featured a flatlay of the palette, describing its fun holiday theme with greens, yellows, and reds.
-    *   [@sinireviews](https://www.instagram.com/p/DRckXcQjJQI/) - provided a detailed review with arm swatches, highlighting the palette's pigmented mattes and sparkly shimmers.
-    *   [@deandranicoleee](https://www.instagram.com/p/DRiDVNMkTbK/) - praised the palette for its depth and saturation, noting it's a perfect holiday color story for deep skin tones.
-    *   [@angeschka](https://www.instagram.com/p/DRihRO0De0C/) - showcased the palette with full arm swatches, highlighting its festive mix of mattes, shimmers, and glitters.
-    *   [@kclaymd14](https://www.instagram.com/p/DRmks2qjGo6/) - collaborated on a look featuring a warm-toned blend of yellow, orange, and red shades from the palette.
-    *   [@heatheraustinmakeup](https://www.instagram.com/p/DRmlKS0jsQK/) - created a collaborative look showcasing a shimmery cut crease and graphic liner.
+    *   [@sinireviews](https://www.instagram.com/p/DRckXcQjJQI/) - Presents a detailed video showcase with arm swatches and a demonstration of the palette's magnetic feature.
+    *   [@heatheraustinmakeup](https://www.instagram.com/p/DRdhnF_jtqp/) - Shares a festive flatlay highlighting the palette's red, green, and neutral tones.
+    *   [@sinireviews](https://www.instagram.com/p/DRhjDbKjOC1/) - Shares a carousel of detailed product shots and arm swatches on a light-medium skin tone.
+    *   [@deandranicoleee](https://www.instagram.com/p/DRiDVNMkTbK/) - Highlights the palette's depth and saturation, noting it's a perfect holiday color story for deep skin tones.
+    *   [@angeschka](https://www.instagram.com/p/DRihRO0De0C/) - Features a video of the festive packaging and full arm swatches on a light-to-medium skin tone.
+    *   [@kclaymd14](https://www.instagram.com/p/DRmks2qjGo6/) - Creates a dramatic eye look with a bright glittery inner half and black winged liner in a collaboration post.
+    *   [@heatheraustinmakeup](https://www.instagram.com/p/DRmlKS0jsQK/) - Showcases a warm-toned sunset eye look while holding the palette in a collaboration feature.
+    *   [@deandranicoleee](https://www.instagram.com/p/DRqJIjogPiL/) - Displays the palette and single shadows in a festive flatlay with arm swatches on a deep skin tone.
 
-*   **Spectra Pencil by GLISTEN COSMETICS**
-    *   [@courtneyquarantine](https://www.instagram.com/p/DRf58h6gQ9j/) - used the black pencil to create a dark, blended ombré effect on the outer corners of the lips.
+*   **Longing eyeshadow palette by BLEND BUNNY COSMETICS**
+    *   [@noopur_makeup](https://www.instagram.com/p/DRsTDL7kmKP/) - Uses the smokey blue and teal mattes from the palette to build an ethereal eye look.
 
-*   **Menacing Metals lipstick by UNEARTHLY COSMETICS**
-    *   [@ghoul.in.japan](https://www.instagram.com/p/DRhO7aiE9A7/) - selected the metallic lipsticks in shades 'Void' and 'Ancient' for a curated medieval-inspired makeup collection.
+*   **Nevermore eyeshadow palette by GOURMANDE GIRLS**
+    *   [@angeschka](https://www.instagram.com/p/DRpbeYEjSuy/) - Features a vibrant multi-chrome eye look created with the palette.
 
-*   **Dexter: Luminol liquid highlighter by LETHAL COSMETICS**
-    *   [@s.andromedae](https://www.instagram.com/p/DRnBWb3kVw0/) - used the liquid highlighter to create a radiant, shimmery eye and face look.
+*   **Ocean Jewel eyeshadow palette by BELLABEAUTEBAR**
+    *   [@deandranicoleee](https://www.instagram.com/p/DRdX5kLAO7R/) - Showcases the palette's vibrant purple, blue, and neon shades with arm swatches on deep skin.
 
-*   **Dead Cute eyeshadow palette by UNEARTHLY COSMETICS**
-    *   [@s.andromedae](https://www.instagram.com/p/DRlEhrREVUi/) - created a vibrant, blown-out green smoky eye using the palette.
+*   **Poison Garden eyeshadow palette by BELLABEAUTEBAR**
+    *   [@deandranicoleee](https://www.instagram.com/p/DRdX5kLAO7R/) - Recommends the palette for deep skin tones, highlighting its depth and phenomenal shimmers.
+
+*   **Realm of Fairies eyeshadow palette by BELLABEAUTEBAR**
+    *   [@deandranicoleee](https://www.instagram.com/p/DRdX5kLAO7R/) - Mentions the palette as one of the brand's impressive collaborator palettes included in the sale.
+
+*   **Rotten eyeshadow palette by BLEND BUNNY COSMETICS**
+    *   [@linsmakeuplooks](https://www.instagram.com/p/DRpoldsAWuf/) - Uses the palette for an eyeshadow look as part of a full GRWM routine.
+
+*   **Serpentine eyeshadow palette by LETHAL COSMETICS**
+    *   [@s.andromedae](https://www.instagram.com/p/DRis51oEUhO/) - Creates a vibrant, multi-dimensional green eye look using the palette.
+    *   [@glamsmitty](https://www.instagram.com/p/DRkoA_VEmRG/) - Demonstrates a full serpent-inspired look, creating a green halo eye with the palette.
+    *   [@noopur_makeup](https://www.instagram.com/p/DRnEwYXkv0E/) - Creates a snake-inspired green and multichrome eye look in a detailed tutorial.
+    *   [@noopur_makeup](https://www.instagram.com/p/DRpmkp7EmBY/) - Provides a detailed review with full arm swatches on a medium-deep skin tone.
+
+*   **Sickly Sweet eyeshadow palette by BLEND BUNNY COSMETICS**
+    *   [@linsmakeuplooks](https://www.instagram.com/p/DRdKPTogWqE/) - Creates an intricate pastel snowflake makeup look, using the palette for the eye makeup.
+
+*   **Ultra Violet eyeshadow palette by BELLABEAUTEBAR**
+    *   [@deandranicoleee](https://www.instagram.com/p/DRdX5kLAO7R/) - Names the palette as a noteworthy collaborator palette available during the brand's sale.
+
+*   **Unoriginal Nudes eyeshadow palette by BELLABEAUTEBAR**
+    *   [@deandranicoleee](https://www.instagram.com/p/DRdX5kLAO7R/) - Recommends the palette for its neutral-leaning undertones and fun shimmers.
 
 *   **Dead Cute blush quad by UNEARTHLY COSMETICS**
-    *   [@s.andromedae](https://www.instagram.com/p/DRlEhrREVUi/) - used the blush quad to add a soft pinkish flush to the cheeks.
-    *   [@haydenhaunts](https://www.instagram.com/p/DRnaAGNiem5/) - applied a soft pink blush from the quad to complement a metallic teal and gold look.
+    *   [@s.andromedae](https://www.instagram.com/p/DRis51oEUhO/) - Uses the 'lolli popette' shade to add a soft flush to a vibrant green eye look.
+    *   [@haydenhaunts](https://www.instagram.com/p/DRnaAGNiem5/) - Applies blush from the quad to complement a metallic gold and teal makeup look.
+
+*   **Dead Cute eyeshadow palette by UNEARTHLY COSMETICS**
+    *   [@s.andromedae](https://www.instagram.com/p/DRlEhrREVUi/) - Creates a luminous, blown-out green smoky eye look with the palette.
 
 *   **Dead Cute lipstick set by UNEARTHLY COSMETICS**
-    *   [@s.andromedae](https://www.instagram.com/p/DRlEhrREVUi/) - paired a green eye look with the collection's 'Toxic Taffy' lipstick.
+    *   [@s.andromedae](https://www.instagram.com/p/DRqeFwkkdnW/) - Provides arm swatches of the four glittery lipstick shades in the bundle.
+
+*   **Dewdrops Part II highlight palette by DIEVERUNE COSMETICS**
+    *   [@glamsmitty](https://www.instagram.com/p/DRrLScQiTmn/) - Showcases the iridescent glitter palette with vibrant swatches on a deep skin tone.
+
+*   **Dexter: Luminol liquid highlighter by LETHAL COSMETICS**
+    *   [@s.andromedae](https://www.instagram.com/p/DRnBWb3kVw0/) - Uses the highlighter on the cheekbones as part of a shimmery, smoky eye look.
+    *   [@s.andromedae](https://www.instagram.com/p/DRn3a9WES3s/) - Applies the highlighter to complement a warm, smoky bronze eye look.
 
 *   **Artificer eyeshadow palette by FANTASY COSMETICA**
-    *   [@angeschka](https://www.instagram.com/p/DRe5w6ujV-O/) - swatched the new holographic single shadows from the collection, showcasing their multi-chrome glittery finish.
+    *   [@angeschka](https://www.instagram.com/p/DRe5w6ujV-O/) - Showcases the Artificer magnetic compact with holographic single shadows, including glittery arm swatches.
+
+*   **Lins x Glisten single wet liner palette by GLISTEN COSMETICS**
+    *   [@linsmakeuplooks](https://www.instagram.com/p/DRdKPTogWqE/) - Uses the white liner from the palette to draw a detailed snowflake for a winter makeup tutorial.
+
+*   **Spectra Pencil by GLISTEN COSMETICS**
+    *   [@courtneyquarantine](https://www.instagram.com/p/DRf58h6gQ9j/) - Uses the black pencil to create a dark ombré effect for a glossy, multi-tonal lip combo.
+
+*   **Speckled Pen - freckle pen by GLISTEN COSMETICS**
+    *   [@s.andromedae](https://www.instagram.com/p/DRlEhrREVUi/) - Uses the pens to create realistic freckles for a luminous green eye and metallic gold lip look.
+    *   [@s.andromedae](https://www.instagram.com/p/DRn3a9WES3s/) - Applies faux freckles as part of a warm, smoky bronze eye and glossy brown lip look.
+
+*   **Lipliner by SINGE BEAUTY**
+    *   [@heatheraustinmakeup](https://www.instagram.com/p/DRpt8LRDqKh/) - Uses the lipliner to define the lips before adding a cream highlight to the center.
