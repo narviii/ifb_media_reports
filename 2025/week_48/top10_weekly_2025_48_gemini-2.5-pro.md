@@ -2,32 +2,32 @@
 
 **Reporting Period:** November 24–30, 2025
 
-1.  **Pressed Single Shadow by Lethal Cosmetics** — 53 mentions  
-    This product's high mention count stems from a single creator's extensive swatch and organization video showcasing their large collection. The review was overwhelmingly positive, with the creator praising the shadows' unique multichrome shifts, vibrant pigmentation, and beautiful finishes.
+1.  **Pressed Single Shadow by Lethal Cosmetics** — 55 mentions  
+    These single eyeshadows dominated discussion, driven by a creator swatching and organizing 54 individual shades. The overwhelming sentiment was positive, with recurring praise for unique multichrome shifts, vibrant pigmentation, and desirable finishes described as "glowy," "holographic-y," and "so pretty." The re-release of single shadows for the brand's customizable palette builder tool was also highlighted as an exciting event.
 
-2.  **Lip Pencils by Kaleidos** — 25 mentions  
-    Creators consistently praised this product for its smooth, creamy, and blendable formula that still offers excellent longevity. The lip pencils were frequently used to define lips and as a base for lip combos, with creators highlighting the versatile shade range suitable for various looks. Multiple creators showcased the full line in swatch videos, reinforcing the positive sentiment around the formula's texture and performance.
+2.  **Lip Melts by Kaleidos** — 32 mentions  
+    Creators consistently praised this product line as a "comfy lip balm/lip gloss hybrid" with a smooth, "glidy" texture. Mentions were overwhelmingly positive, highlighting the wide range of shades from nudes to unique colors like gray and sparkly iridescent toppers. The sparkly shades were particularly celebrated for being "ultra sparkly and special" without feeling gritty.
 
-3.  **Lip Melts by Kaleidos** — 24 mentions  
-    Creators universally described this product as a comfortable and "comfy lip balm/gloss hybrid" with an ultra-shiny finish. The sparkly and iridescent shades were particularly popular, praised for feeling smooth and non-gritty while providing a special effect. The Lip Melts were featured in numerous launch reviews and swatch videos, often layered over lip pencils to complete a look.
+3.  **Lip Pencils by Kaleidos** — 21 mentions  
+    This new product line received strong positive feedback for its creamy, smooth, and blendable formula that also offers excellent longevity. Creators showcased the full range of nude and deep shades, frequently using them to create defined lip combos with the brand's Lip Melts. The pencils were consistently described as easy to work with and highly pigmented.
 
-4.  **Epiphany Glow Melt-on Eyeliners by Kaleidos** — 20 mentions  
-    Creators expressed significant excitement for the new shades, consistently lauding the formula's creamy texture and incredible longevity, describing it as "budge-proof." The eyeliners were used for graphic looks and to add multichromatic pops of color to the waterline. The unique color-shifting properties of shades like "Scarlet Striker" were frequently praised in reviews and tutorials.
+4.  **Festive Elegance Palette by Dede' Signature** — 16 mentions  
+    This holiday-themed palette was lauded by multiple creators for its "gorgeous," "rich," and "luxurious" jewel-toned color story of reds, greens, and golds. The quality was consistently praised, with creators noting the mattes were pigmented and blendable, and the shimmers were "stunning" and "special." The festive packaging and versatile color story were key positive themes.
 
-5.  **Festive Elegance Palette by Dede Signature** — 17 mentions  
-    This palette received widespread positive attention for its "gorgeous" and "luxurious" holiday-themed color story, featuring rich jewel tones of red, green, and gold. Creators praised the high pigmentation and blendable formula in tutorials and swatch videos. The palette was consistently described as a perfect Christmas palette with an elegant, moody twist that elevates a classic festive theme.
+5.  **Epiphany Glow Eyeliners by Kaleidos** — 16 mentions  
+    This line of eyeliners, featuring new shades, was celebrated for its unique multichromatic shifts and excellent performance. Creators described the formula as creamy, long-lasting, and "budge-proof," making it ideal for graphic liner looks and waterline application. Shades like the red "Scarlet Striker" and the shifty blue "Miss Matrix" were specifically highlighted for their vibrant effects.
 
-6.  **Death Palette by Cosmic Beauty** — 14 mentions  
-    This tarot-themed palette generated significant excitement, with most creators praising its unique gothic and cool-toned color story that includes moody neutrals and vibrant pops of color. The formula was lauded for being highly pigmented, blendable, and versatile for creating diverse looks. Despite one creator noting color story similarities to past releases, the overall sentiment was overwhelmingly positive, celebrating the brand's quality and creative direction.
+6.  **Death Palette by Cosmic Beauty** — 15 mentions  
+    This new launch generated significant excitement for its unique tarot theme and "moody, unexpected" cool-toned color story featuring grays, blues, purples, and pops of mustard and red. Creators praised the brand's consistent quality, highlighting the palette's blendable mattes and "special" shimmers with diverse finishes. The palette was seen as a creative and inspiring addition to the brand's popular tarot series.
 
 7.  **Moonlit Metal Topper by Menagerie Cosmetics** — 13 mentions  
-    Mentions for this product came from a single creator reviewing their collection, resulting in mixed feedback based on the product's age. While many shades were still praised as "gorgeous" and "beautifully sparkly," several others were noted to have dried out completely. This suggests the product performs well initially but may have longevity issues over time.
+    Mentions for this product line were mixed, arising from a creator's declutter video reviewing their collection. Several shades were still described as "beautiful," "gorgeous," and "sparkly," confirming their continued high quality and aesthetic appeal. However, a notable number of the liquid eyeshadows were reported to have dried out and become unusable over time.
 
-8.  **Serpentine Palette by Lethal Cosmetics** — 8 mentions  
-    This palette was met with high anticipation, with creators praising its "stunning" snake-themed packaging and inspirational, vampy color story. The mix of matte, metallic, and multichrome finishes was highlighted as a key strength, performing well in tutorials. The overall sentiment was very positive, with creators expressing excitement over the palette's quality and unique color combinations.
+8.  **Serpentine Palette by Lethal Cosmetics** — 9 mentions  
+    This new palette was received positively for its "stunning" snake-themed packaging and "beautiful," vampy color story mixing neutrals with vibrant pinks and greens. Creators were inspired by the mix of matte, metallic, and multichrome finishes, noting the shadows performed well and blended great. The palette was a key feature of the brand's Black Friday launch and rebrand.
 
-9.  **Snowdrop Color Nectar Pigment Balm by Rituel de Fille** — 6 mentions  
-    Featured as part of the brand's Black Friday collection, this multi-use balm was described as a bright, cool-toned cherry blossom pink. Creators demonstrated its versatility by applying it to eyes, cheeks, and lips for a luminous, monochromatic look. It was frequently mentioned as a desirable gift-with-purchase item, contributing to its visibility during the week.
+9.  **Infinity Lip Stains by Lethal Cosmetics** — 6 mentions  
+    Part of a new collection, these lip stains were praised for their non-drying, long-lasting, and comfortable formula. Creators appreciated the luxe packaging and the unique shade range inspired by poisonous flowers. The product's versatility was also noted, as it could be worn sheer for a "popsicle effect" or built up for a bolder look.
 
-10. **Levitation Lash Mascara by Rituel de Fille** — 6 mentions  
-    This mascara appeared consistently in one creator's tutorials throughout the week, used to finish a variety of eye looks. It was often paired with other products from the brand's new collection. Its repeated use suggests it is a reliable go-to product for the creator, serving a functional role in completing their makeup.
+10. **Snowdrop Color Nectar Pigment Balm by Rituel de Fille** — 5 mentions  
+    This product was featured as part of the brand's exclusive Black Friday launch, available as a gift with purchase. Described as a "bright and cool toned cherry blossom pink," creators highlighted its multi-use functionality by wearing it on eyes, cheeks, and lips. The formula was praised for blending well and providing a vibrant, dewy flush of color.
