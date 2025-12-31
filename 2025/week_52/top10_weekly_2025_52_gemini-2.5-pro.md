@@ -2,32 +2,32 @@
 
 **Reporting Period:** December 22–28, 2025
 
-1. **Nebubalms by Hyrular Beauty** — 9 mentions  
-   Creators showcased all four shades of this shimmery lip balm (Halcyon, Protogenic, Nymphaea, and Void) through swatches and PR unboxings. The balms were praised for their nourishing, sheer-but-buildable formula and were used as ethereal, sparkly toppers for lip looks. The brand's nostalgic yet futuristic creative direction was also noted as a point of interest.
+1.  **Christmas Eve Eyeshadow Palette/Singles by Oden's Eye** — 5 mentions  
+    Creators featured this palette for its deep, cool-toned color story and high-impact multichrome performance. It was used to create dramatic blue eye looks and was highlighted in a successful reformulation that improved pigmentation and sparkle. The re-release as single eyeshadows also generated discussion among creators.
 
-2. **Epiphany Glow Melt-On Eyeliner by Kaleidos** — 8 mentions  
-   This eyeliner line was used to create impactful, colorful, and graphic looks, with creators specifically mentioning its ability to "pop" and "not budge." An unboxing of six new shades, including a highly anticipated red, generated significant excitement around the expansion of this popular, long-wearing formula.
+2.  **Mostly Merry Palette by Gourmande Girls** — 5 mentions  
+    This palette was a popular choice for creating festive and icy blue holiday tutorials across platforms. Creators praised its performance, noting the high pigmentation and blendability of both the matte and shimmer formulas. It was consistently featured as the central product for building complex, high-impact eye looks.
 
-3. **Sculpting Lip Liner by Kaleidos** — 8 mentions  
-   Featured as part of a major new collection launch, this lip liner was highlighted in a large unboxing of 10 new shades. Creators used various shades to define lips for both bold and balanced nude looks, noting the formula's smooth and blendable application.
+3.  **Haunt Me Palette by Blend Bunny Cosmetics** — 4 mentions  
+    The Haunt Me Palette was praised by creators for its unique gothic theme, well-curated color story, and high-quality formula. It was featured in tutorials and swatch posts, with discussion highlighting its blendable mattes and range of shimmer finishes. The palette's assortment of cool-toned greys, reds, and neutrals resonated with creators' aesthetics.
 
-4. **Mostly Merry Palette by Gourmande Girls** — 5 mentions  
-   This palette was the central product in multiple tutorials for festive looks, ranging from smoky eyes to dramatic "icy blue" styles. Creators consistently praised its high performance, highlighting the strong pigmentation and blendability of both its matte and shimmer formulas.
+4.  **Crystallize Palette by Bella Beauté Bar** — 4 mentions  
+    Creators were highly impressed with this palette, calling it a "hit" for its unique muted, jeweled pastel color story. It was used in tutorials to demonstrate the blendability of its mattes and the high-impact shifts of its multichrome shimmers. The overall aesthetic and performance were consistently praised as beautiful and high-quality.
 
-5. **Lip Oil/Gloss by Blend Bunny** — 4 mentions  
-   Creators used various lip products from the brand to achieve on-trend, high-shine finishes. These were applied to complete both simple glossy lips and more intense, dark "vampy" looks, showcasing the versatility of the brand's oils and glazes.
+5.  **Merry Christmas Eyeshadow Palette/Singles by Oden's Eye** — 4 mentions  
+    This palette was featured for its festive color story and high-quality, complex shimmer formulas. Creators noted its successful reformulation, with the newer version offering more vibrant mattes and impactful, multi-dimensional shimmers. The re-release of the shades as singles also garnered attention and was a key point of discussion.
 
-6. **Glass Load Lip Melt by Kaleidos** — 4 mentions  
-   As a key part of the new "Moon Arcade" collection, this lip melt was introduced through a detailed unboxing of its 12 shades and multiple finishes. Creators subsequently featured the new sheer, sparkly formula in looks, experimenting with its unique texture.
+6.  **Baked Gelato Highlighter by Laura Geller** — 4 mentions  
+    The relaunch of this iconic highlighter was a major topic, sparking direct comparisons to its original formula. Creators consistently noted the new version is significantly more subtle, describing it as a "grown-up" interpretation that lacks the "blinding" intensity of the original. This led to mixed sentiment, with creators acknowledging its beauty but expressing disappointment that it differed so much from the famously intense classic.
 
-7. **Crystallize Palette by Bella Beauté Bar** — 3 mentions  
-   This palette was featured in several creator looks, including a dedicated video tutorial that walked through its application. It was praised for its muted pastel and jewel-toned color story, with a purple-blue-green shifting shimmer being a standout shade.
+7.  **Dark Dreamscape Eyeshadow Palette by Bella Beauté Bar** — 3 mentions  
+    This palette received strong endorsements, with creators calling it a personal favorite of the year. It was praised for its cool-toned neutral color story and high-impact holographic shimmers, making it a go-to for winter looks. The high pigmentation and quality of both the mattes and special shades were consistently highlighted.
 
-8. **Tinsel Highlight by Dieverunecosmetics** — 3 mentions  
-   Mentioned consistently as part of the brand's "Sporklemas" holiday collection, this highlighter was a go-to for festive makeup tutorials. Creators used it to add high-impact sparkle and a luminous finish to their holiday-themed looks.
+8.  **Dark Dreamscape Highlighter by Bella Beauté Bar** — 3 mentions  
+    This highlighter was celebrated for its intense, icy purple-blue duochrome finish. Creators recommended it for those seeking a "blinding" and sparkly effect. It was showcased as a standout in a collection of blue highlighters and used creatively on both the cheeks and lips for a high-impact, cool-toned glow.
 
-9. **Merry Chrissy Palette by Glaminatrix** — 3 mentions  
-   Showcased in swatches and holiday looks, this palette's versatility was a key talking point. One creator demonstrated a creative use case by applying a blue shimmer eyeshadow from the palette as an "insane" and "blinding" facial highlighter.
+9.  **Aurora Runner Eyeliner by Kaleidos** — 3 mentions  
+    This eyeliner was praised for its impactful and unique metallic finish, described as a silvery pink that shifts to green. Creators noted that the formula pops on the eyes, doesn't budge, and is effective for brightening the waterline. It was featured in multiple tutorials to add a contrasting, shifty element to colorful eye looks.
 
-10. **Christmas Eve Singles Bundle by Oden's Eye** — 3 mentions  
-    This bundle was used to create a vibrant, monochromatic "very very blue" eye look. Its return was a notable event, with creators comparing the new singles to the originals, indicating a re-launch or reformulation of the popular holiday shades.
+10. **Levitation Lash Mascara by Rituel de Fille** — 3 mentions  
+    This mascara was consistently used by a creator across multiple intricate and colorful eye looks, suggesting it is a reliable staple product. It was paired with high-impact indie eyeshadows to complete dramatic looks. The repeated use implies positive performance in defining lashes without detracting from complex shadow work.
