@@ -2,32 +2,32 @@
 
 **Reporting Period:** January 26–February 1, 2026
 
-1.  **Angelic Palette by Cosmic Beauty** — 10 mentions  
-    Creators expressed high excitement for this new 12-pan palette, frequently describing it as "cute," "whimsical," and "pastel perfection." The color story was consistently praised for its blend of soft pastels with versatile deepening shades, making it more than a typical pastel palette. The overall sentiment was overwhelmingly positive, with multiple creators calling the brand a favorite and highlighting the palette's beautiful and airy aesthetic.
+1.  **Succulent Dew Palette by Singe Beauty** — 9 mentions  
+    Creators consistently praised this palette for its versatile color story, featuring teals, purples, and berry pinks. It was frequently used to create vibrant, colorful eye looks, with specific mentions of the high-quality shimmers and blendable mattes that perform well even without primer. The palette was highlighted by the brand's owner and other creators as a personal favorite for its unique combination of shades.
 
-2.  **Succulent Dew Palette by Singe Beauty** — 8 mentions  
-    This palette was frequently used to create vibrant, colorful eye looks, with creators highlighting its beautiful combination of teals, purples, and berry pinks. One creator declared it their "favorite palette Singe has done," praising the quality of the shimmers and unique color story. As it is the brand owner's own product, mentions were consistently positive and often showcased its versatility in complex, multi-tonal looks.
+2.  **Angelic Palette by Cosmic Brushes** — 9 mentions  
+    This new release was met with high anticipation, lauded for its whimsical pastel color story balanced with essential deepening shades. Creators loved the buildable matte formula and the very sparkly, sheer shimmers, which were noted as perfect for layering or as inner corner highlights. The palette was frequently described as a beautiful and well-curated addition to the brand's lineup, ideal for soft yet colorful looks.
 
 3.  **Moonlight Muse Palette by Arttitude Cosmetics** — 8 mentions  
-    The Moonlight Muse Palette received high praise for its unique "plummy spicy neutral" color story and glamorous, cool-toned aesthetic. Creators consistently highlighted the superior performance of the shadows, describing the mattes as "buttery" and pigmented, while the shimmers were noted for being exceptionally sparkly and unique. The palette was used to create highly pigmented and complex looks, with its shifty shades being a standout feature.
+    This palette was celebrated for its unique "plummy spicy neutrals" and cool-toned glamorous aesthetic. Creators demonstrated its superior performance by creating highly pigmented and complex looks, consistently calling out the incredibly impactful and reflective shimmers. The release generated significant buzz, with praise for its unique color story and suitability for deeper skin tones.
 
-4.  **Made a Monster Palette by Unearthly Cosmetics** — 4 mentions  
-    This palette was celebrated for its bright and vibrant color story, particularly its intense pinks and purples. Creators consistently pointed to the shimmer formula as the palette's most impressive feature, noting that it's where the product "truly shines." It was used to create bold, colorful full-face looks, reinforcing its reputation for high-impact pigmentation.
+4.  **Made a Monster Palette by Unearthly Cosmetics** — 6 mentions  
+    Creators celebrated this palette for its exceptionally bright and vibrant color story, with a focus on its vivid pinks and purples. The shimmers were consistently highlighted as the standout feature, praised for their intense sparkle and impact. The palette was used for various bold looks and was even named a favorite Valentine's-themed release of the season.
 
 5.  **The Spongebob Movie: Search for Squarepants Palette by Lethal Cosmetics** — 4 mentions  
-    This collaboration palette was featured for its fun, vibrant colors and oceanic theme, used in multiple tutorials and creative eye looks. While the color story was loved, one creator provided mixed feedback, noting that the shimmer shades felt sheer and required building up to achieve full impact. Despite this critique, the palette was showcased positively for creating colorful and sparkly themed looks.
+    This collaboration palette was appreciated for its vibrant, oceanic-themed color story that inspired fun, creative looks. While the theme and mattes were well-received, sentiment on the shimmers was mixed, with one creator finding them sheer and requiring layering to build intensity. The palette was also mentioned alongside other products from the same collection, such as the jelly blushes.
 
 6.  **Eerie Pencil by Black Moon Cosmetics** — 3 mentions  
-    The Eerie Pencil was consistently used as a foundational lip product for alternative and structured lip looks. Creators applied it to line and fill the lips, creating depth and a solid base before layering other products like liquid lipsticks. Its role was functional and crucial for achieving specific dimensional and ombré lip combinations.
+    This lip pencil was a go-to for creators crafting alternative and structured lip looks. It was consistently used to line and fill the outer lips, providing a deep, pigmented base essential for creating dimension and ombré effects. The product was praised for its ability to provide a crucial foundation for complex lip combinations.
 
-7.  **Warm Wishes Soft Matte Powder Bronzer by Rare Beauty** — 2 mentions  
-    This powder bronzer received strong positive feedback for both its color and finish. One creator praised its beautiful, strong yellow undertone and blendability, while another highlighted its "soft glow" finish. The sentiment was clearly positive, with creators finding it suitable for their skin tones and appreciating its aesthetic result.
+7.  **Evocative Lip Liner by Singe Beauty** — 3 mentions  
+    This lip liner was highlighted for its performance, particularly in creating sharp, clean lines and preventing lipstick from bleeding, a feature noted as important for mature lips. Creators expressed excitement over the available cool-toned shades, a range often felt to be lacking in the market. The product was showcased as a reliable tool for achieving a polished lip look.
 
-8.  **Evocative Lip Liner (Brazen Birch) by Singe Beauty** — 2 mentions  
-    Mentioned by the brand's creator, this lip liner was presented as a key tool for perfecting lip looks. It was used both as a standard liner before applying balm and as a functional barrier to prevent matte lipstick from bleeding or moving. The context highlights its utility and performance, especially for achieving clean, long-wearing matte lips.
+8.  **Liquid Lip by Menagerie Cosmetics** — 3 mentions  
+    Various shades of this liquid lipstick were used to create bold, complementary lip looks for colorful eye makeup. The formula was shown to be versatile, used both for creating bright, monochromatic statements and for blending into dimensional, ombré lip effects. Shades ranged from bright pink to unique grayish-lavender, showcasing the brand's diverse color offerings.
 
-9.  **Bake & Set Powder by Glamlite** — 2 mentions  
-    This setting powder was utilized for essential finishing steps in makeup routines. Creators used it for both targeted setting of the T-zone and under-eyes to prevent creasing, as well as for overall face setting to control shine from cream products. Its primary function was to lock in makeup and achieve a more natural, long-wearing finish.
+9.  **Lip Oil by Blend Bunny Cosmetics** — 3 mentions  
+    This lip oil formula received high praise from creators, who loved its comfortable feel and high-shine finish. It was frequently layered over lip liners to complete a look, providing a sheer, sparkly, and wet-looking effect. The product was highlighted as a "win-win," combining a great formula with versatile, wearable shades.
 
-10. **Blurr Cream by Melt Cosmetics** — 2 mentions  
-    This primer was highly praised for its blurring and smoothing capabilities. Creators noted that it created a soft-focus, blurred effect on the skin that allowed for perfect layering of subsequent makeup products. A key positive attribute was its ability to smooth the skin without being overly mattifying, letting a natural glow shine through.
+10. **Sweethearts & Secrets Palette by Dede Signature** — 3 mentions  
+    This new palette was highlighted with anticipation, praised for its creative and non-traditional Valentine's color story that includes UV shades. Creators expressed strong love for the brand's quality and presentation, noting the palette is matte-heavy but features shimmers that perform exceptionally well over a tacky base. The release was seen as a refreshing and exciting addition to the market.
