@@ -2,26 +2,32 @@
 
 **Reporting Period:** May 13–19, 2024
 
-1.  **Multichrome in "Red Giant" by Terra Moons Cosmetics** — 5 mentions  
-    Creators consistently praised this shadow for its intense and "magical" color shift, with its red-to-green flip being a key point of discussion. It was featured in swatch comparisons, "Top 5" videos, and used creatively as both a lid shade and a liquid liner. The sentiment was overwhelmingly positive, focusing on its high-impact visual effect.
+1.  **Colorfix 24-Hour Cream Color by Danessa Myricks Beauty** — 5 mentions  
+    Creators consistently praised this multi-use cream product for its versatility and high performance. It was frequently featured as an eyeshadow base to enhance vibrancy and as a tool for creating sharp, long-wearing graphic liner looks. The sentiment was overwhelmingly positive, with creators calling it a "go-to" for bold eye makeup.
 
-2.  **Stained Glass Eyeshadow in "Grisaille" by Clionadh Cosmetics** — 4 mentions  
-    This shadow received mixed feedback, primarily centered on its performance. Creators loved its high-impact sparkle, using it as a topper over a dark base or as the centerpiece for a halo eye look. However, fallout was a recurring theme, with one creator giving a negative review for this reason while another acknowledged the issue but felt the brilliant shine was worth the inconvenience.
+2.  **Cosmic Chameleon Eyeshadow by Terra Moons Cosmetics** — 4 mentions  
+    This eyeshadow was celebrated for its intense multichrome shift and high-impact sparkle. Creators used it as both a primary lid shade to showcase its color-shifting properties and as an inner corner highlight for a dramatic pop. The product was consistently highlighted for its "unreal" and visually stunning effect.
 
-3.  **Pressed Powder Shadow in "Cascade" by Lethal Cosmetics** — 4 mentions  
-    This product was frequently mentioned as a reliable staple for quick and effortless looks. Creators showcased it as a perfect one-and-done shimmer for the eyelid and as a go-to for a bright inner corner highlight. The sentiment was uniformly positive, emphasizing its ease of use and brightening effect.
+3.  **Space Age Multichrome Highlighter by Kaleidos Makeup** — 3 mentions  
+    This highlighter was lauded for its ability to create an intense, "blinding" glow with a distinct wet-look finish. Creators consistently mentioned achieving a "glowing to the gods" effect, emphasizing its high-shine and reflective properties. All mentions were highly positive, focusing on the product's standout finish.
 
-4.  **Solmåne II Eyeshadow Palette by Odens Eye Cosmetics** — 4 mentions  
-    The Solmåne II palette was highlighted for its versatility and well-regarded formula. Creators used it to produce a range of looks, from sunset-themed tutorials to more creative "fantasy" aesthetics. The palette's unique color story and blendable formula were praised, with one creator noting they preferred its quality over a competitor's.
+4.  **Stained Glass Multichrome by Clionadh Cosmetics** — 3 mentions  
+    This product was featured in both comparative reviews and swatch-focused content. Creators showcased its unique color shifts and texture, often comparing it to other multichromes on the market. Mentions ranged from neutral analysis in dupe videos to positive excitement around new shades.
 
-5.  **Futurism V: Electro-Turquoise by Kaleidos Makeup** — 3 mentions  
-    This palette was celebrated for its unique and vibrant color story, particularly its blue and turquoise shades. Creators consistently used it to create bold, graphic liner looks, praising the intense pigmentation that made such styles possible. All mentions were positive, focusing on the palette's distinctive artistic potential.
+5.  **Matte Fluid Eye Paint by About-Face** — 3 mentions  
+    This product was a popular choice for creating graphic eye looks, with creators leveraging its precise application and matte finish. It was mentioned in the context of recreating viral liner trends, highlighting its relevance in current social media aesthetics. The sentiment was positive, focusing on its utility for artistic makeup.
 
-6.  **Hive-nectar Pressed Powder Blush by Lethal Cosmetics** — 2 mentions  
-    Featured in tutorials, this blush was praised for its blendability and appealing shade. One creator used it to demonstrate a "draped blush" technique, noting how easily it blended, while another simply described it as a "pretty coral" in their audio transcript.
+6.  **Muerte Palette by Melt Cosmetics** — 2 mentions  
+    The Muerte Palette saw mentions in nostalgic or retrospective content. Creators used it to create "throwback" looks and revisited it in discussions about beloved older palettes in their collections. The sentiment was generally positive to neutral, positioning it as a memorable legacy product.
 
-7.  **All I Ever Wanted Palette by Unearthly Cosmetics** — 2 mentions  
-    This palette garnered positive but nuanced first impressions. One creator described its color story as "perfection," while another provided a more detailed review, loving the matte formula but finding the shimmers required a wet brush to achieve full impact.
+7.  **Light Trap Highlighter by Half Magic Beauty** — 2 mentions  
+    This highlighter was noted for delivering a more subtle, "ethereal" glow compared to more intense options. Creators appreciated that it provided a soft glam effect without emphasizing skin texture. The mentions were positive, highlighting its suitability for refined looks.
 
-8.  **Mono Blushes by Kaleidos Makeup** — 1 mention  
-    This product line was featured in a swatch-focused video. The creator highlighted the blushes' buildable formula and the uniqueness of the available tones, providing a neutral-to-positive overview of the collection.
+8.  **Fun Size Palette by SugarPill Cosmetics** — 2 mentions  
+    Creators consistently reached for this palette to create colorful, rainbow-inspired eye looks. Its compact size and vibrant color story were key discussion points. The mentions were positive, positioning it as a go-to for bold, multi-hued makeup.
+
+9.  **The Nubian Palette by Juvia's Place** — 1 mention  
+    This palette was featured in a beginner-focused tutorial, where it was recommended as an essential staple product. Its blendable formula and versatile neutral color story were highlighted as key reasons for its suitability for those new to makeup.
+
+10. **Hive Mind Palette by Lethal Cosmetics** — 1 mention  
+    The Hive Mind Palette was used to create a grungy, alternative makeup look. The creator praised its unique, moody color story, indicating its appeal for non-traditional and expressive styles.
