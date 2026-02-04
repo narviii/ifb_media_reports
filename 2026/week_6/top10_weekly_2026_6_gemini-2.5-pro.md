@@ -2,32 +2,26 @@
 
 **Reporting Period:** May 13–19, 2024
 
-1.  **Super Shock Shadow by ColourPop** — 5 mentions  
-    Creators consistently praised this product for its unique, bouncy texture and high-impact shimmer with zero fallout. It was frequently used as a one-and-done shadow for quick, easy glam or as a lid topper to create a sparkling "wet look." The overall sentiment was overwhelmingly positive, highlighting its versatility and performance.
+1.  **Multichrome in "Red Giant" by Terra Moons Cosmetics** — 5 mentions  
+    Creators consistently praised this shadow for its intense and "magical" color shift, with its red-to-green flip being a key point of discussion. It was featured in swatch comparisons, "Top 5" videos, and used creatively as both a lid shade and a liquid liner. The sentiment was overwhelmingly positive, focusing on its high-impact visual effect.
 
-2.  **Lash Princess Mascara by essence** — 4 mentions  
-    This mascara was repeatedly hailed as a "holy grail" affordable product that delivers high-end results. Creators expressed surprise at the significant volume and length it provides, with one directly comparing it to luxury mascaras and declaring it a superior dupe. It is clearly a staple product that creators are frequently asked about by their audience.
+2.  **Stained Glass Eyeshadow in "Grisaille" by Clionadh Cosmetics** — 4 mentions  
+    This shadow received mixed feedback, primarily centered on its performance. Creators loved its high-impact sparkle, using it as a topper over a dark base or as the centerpiece for a halo eye look. However, fallout was a recurring theme, with one creator giving a negative review for this reason while another acknowledged the issue but felt the brilliant shine was worth the inconvenience.
 
-3.  **Cloud Paint by Glossier** — 4 mentions  
-    Discussions centered on this blush's ability to create a natural, blendable, "flushed-from-within" look. Creators demonstrated its use for achieving a soft wash of color or a "sun-kissed vibe." While sentiment was largely positive for its seamless application, one creator with oily skin noted a wish for longer staying power.
+3.  **Pressed Powder Shadow in "Cascade" by Lethal Cosmetics** — 4 mentions  
+    This product was frequently mentioned as a reliable staple for quick and effortless looks. Creators showcased it as a perfect one-and-done shimmer for the eyelid and as a go-to for a bright inner corner highlight. The sentiment was uniformly positive, emphasizing its ease of use and brightening effect.
 
-4.  **Blursh by Made By Mitchell** — 3 mentions  
-    This liquid blush was celebrated for its intense pigmentation and blendable formula. Creators showcased its versatility, using it not only on the cheeks and lips but also applying it under foundation for a radiant, glowing-from-within effect. The sentiment was uniformly positive, emphasizing its ease of use.
+4.  **Solmåne II Eyeshadow Palette by Odens Eye Cosmetics** — 4 mentions  
+    The Solmåne II palette was highlighted for its versatility and well-regarded formula. Creators used it to produce a range of looks, from sunset-themed tutorials to more creative "fantasy" aesthetics. The palette's unique color story and blendable formula were praised, with one creator noting they preferred its quality over a competitor's.
 
-5.  **Matte Fluid Eye Paint by about-face** — 3 mentions  
-    This product was featured for creating bold, artistic eye looks, particularly sharp graphic liner. Creators lauded its full opacity and budge-proof, long-lasting formula. It was also recommended as a reliable eyeshadow base to enhance the vibrancy and longevity of powder shadows.
+5.  **Futurism V: Electro-Turquoise by Kaleidos Makeup** — 3 mentions  
+    This palette was celebrated for its unique and vibrant color story, particularly its blue and turquoise shades. Creators consistently used it to create bold, graphic liner looks, praising the intense pigmentation that made such styles possible. All mentions were positive, focusing on the palette's distinctive artistic potential.
 
-6.  **The Warrior Palette by Juvia's Place** — 2 mentions  
-    Creators used this palette to craft warm, "golden goddess" looks, consistently praising its powerful metallic formula. The gold shades were singled out as being "unmatched" in their intense pigmentation and payoff. The palette is clearly a go-to for creators seeking impactful, warm-toned eye looks.
+6.  **Hive-nectar Pressed Powder Blush by Lethal Cosmetics** — 2 mentions  
+    Featured in tutorials, this blush was praised for its blendability and appealing shade. One creator used it to demonstrate a "draped blush" technique, noting how easily it blended, while another simply described it as a "pretty coral" in their audio transcript.
 
-7.  **Gemini Palette by Melt Cosmetics** — 2 mentions  
-    The Gemini Palette was consistently identified as a go-to for creating "grungy" and fall-inspired eye looks. Its unique olive and gold color story was described as "iconic" by creators. It is positioned as a staple for achieving a specific, moody aesthetic.
+7.  **All I Ever Wanted Palette by Unearthly Cosmetics** — 2 mentions  
+    This palette garnered positive but nuanced first impressions. One creator described its color story as "perfection," while another provided a more detailed review, loving the matte formula but finding the shimmers required a wet brush to achieve full impact.
 
-8.  **Pretty Guardian Palette by ColourPop** — 2 mentions  
-    This palette was used to create soft, pastel, and "magical girl" themed looks, directly referencing its anime inspiration. Creators were particularly impressed with its "ethereal shimmers." The context shows it's used for more playful and thematic makeup applications.
-
-9.  **Futurism V Palette by Kaleidos Makeup** — 2 mentions  
-    Mentions of this palette focused on its unique and bold color story. Creators highlighted the "electric" turquoise and duochrome shades as standout features. The product was used to create vibrant, statement eye looks that leverage its unconventional colors.
-
-10. **Pressed Powder Blush by ColourPop** — 2 mentions  
-    This blush was recommended as a high-quality yet affordable option for adding a simple pop of color to the cheeks. Creators praised its smooth and buildable formula, positioning it as a reliable and accessible staple for everyday makeup routines.
+8.  **Mono Blushes by Kaleidos Makeup** — 1 mention  
+    This product line was featured in a swatch-focused video. The creator highlighted the blushes' buildable formula and the uniqueness of the available tones, providing a neutral-to-positive overview of the collection.
