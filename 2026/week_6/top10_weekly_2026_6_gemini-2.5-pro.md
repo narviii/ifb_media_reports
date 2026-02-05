@@ -1,33 +1,27 @@
 # Weekly Top 10 Indie Makeup Product Mentions
 
-**Reporting Period:** November 10–17, 2025
+**Reporting Period:** May 20–27, 2024
 
-1.  **Matte Fluid Eye Paint by About-Face** — 3 mentions  
-    Creators consistently praised this product for its performance in graphic eye looks, highlighting its opacity and long-lasting, budge-proof formula. It was used both for sharp, colorful liners and as a vibrant base to make other eyeshadows pop. The sentiment was overwhelmingly positive regarding its reliability and versatility.
+1.  **Blursh by Made by Mitchell** — 5 mentions  
+    Creators consistently praised this liquid blush for its blendability and performance, describing it as a "perfect" formula that "blends like a dream." It was used to create soft-focus, watercolor effects on the cheeks and was noted for its ability to be layered over powder without any patchiness. The overall sentiment was overwhelmingly positive.
 
-2.  **Stained Glass Multichrome Shadow by Clionadh Cosmetics** — 3 mentions  
-    Mentions focused on the "magical" and ethereal quality of these shadows, with creators showcasing their intense sparkle and dramatic color shifts. They were frequently used as lid toppers for a high-impact effect. Discussion suggests a strong positive sentiment, with creators noting the shadows are worth their premium price point.
+2.  **Pretty Fresh Foundation by ColourPop** — 4 mentions  
+    This foundation was featured as a go-to base, with creators highlighting its lightweight feel and surprisingly good coverage. It was used for full glam looks and positioned as a viral favorite. One creator noted it performs best for those with normal to dry skin, indicating mixed but generally positive feedback.
 
-3.  **Groundwork Palette by Danessa Myricks Beauty** — 3 mentions  
-    This palette was celebrated for its extreme versatility, with creators demonstrating its use for a full face of makeup including brows, eyeshadow, contour, and eyeliner. It was frequently described as a "go-to" or staple product, particularly for travel and creating everyday looks. The sentiment was uniformly positive, emphasizing its multi-use functionality.
+3.  **Matte Fluid Eye Paint by About-Face** — 3 mentions  
+    This product was celebrated for its performance in creating bold, graphic eyeliner looks. Creators raved about the formula's incredible staying power, emphasizing that it "does not move" and "didn't budge." The vibrant shades were also a key point of discussion for creating artistic and impactful eye makeup.
 
-4.  **Yummy Skin Blurring Balm Powder by Danessa Myricks Beauty** — 3 mentions  
-    Creators highlighted this product's "magic" blurring effect on pores and skin texture without appearing heavy. It was used for setting the T-zone and under-eyes, with a wear test noting it effectively controlled oil for over eight hours. The consensus was highly positive, focusing on its ability to create a flawless, lightweight finish.
+4.  **Cloud Paint by Glossier** — 3 mentions  
+    Cloud Paint was consistently mentioned as a staple for achieving a natural, dewy flush of color on the cheeks. Creators showcased its buildable pigmentation and highlighted its role in quick "5-minute face" routines. The product is clearly a favorite for an easy, everyday hint of color.
 
-5.  **Nightflower Palette by Lethal Cosmetics** — 3 mentions  
-    This palette was consistently used to create dark, grungy, and vampy smokey eyes, with creators calling it perfect for autumn and winter looks. Discussions centered on the high pigmentation and excellent blendability of the matte shades. The overall sentiment was positive, positioning the palette as ideal for moody and dramatic styles.
+5.  **Chromaddiction Shimmer by Half Magic** — 3 mentions  
+    This shimmer product was used to add a "pop of glitter" and elevate makeup looks. While one creator mentioned experiencing some fallout, they concluded the intense sparkle was worth it. The overall sentiment suggests it's a high-impact product for adding a finishing touch of shimmer.
 
-6.  **Cosmic Chameleon Shadow by Terra Moons Cosmetics** — 3 mentions  
-    Mentions revolved around the visually stunning and intense duochrome shifts of these single shadows. Creators used them as lid toppers or for a pop of color on the lower lash line to create dramatic effects. The sentiment was highly positive, with discussions focused on the unique and impactful color-shifting properties.
+6.  **The Warrior Eyeshadow Palette by Juvia's Place** — 3 mentions  
+    Creators praised this palette for its "insane" and "intense" pigmentation, particularly highlighting the gold shades. It was used to create vibrant looks, such as a "stunning sunset eye." The commentary was uniformly positive, focusing on the high color payoff of the eyeshadows.
 
-7.  **Plain Jane Remastered Palette by Adept Cosmetics** — 2 mentions  
-    This palette was featured for creating vibrant, multi-color, and "rainbow" eye looks. Creators praised the high pigmentation and ease of use of the shadows. The positive sentiment underscores its performance for those seeking bold and colorful makeup styles.
+7.  **Super Shock Shadow by ColourPop** — 2 mentions  
+    This eyeshadow was mentioned for its unique, bouncy texture and its ability to provide a "little sparkle." Creators used it for swatching and as a simple way to add shimmer to the eyes. The product was positioned as a fun and texturally interesting option for eye makeup.
 
-8.  **Light Lock Lip Gloss by Half Magic** — 2 mentions  
-    This product was consistently praised as a perfect glittery lip topper due to its intense sparkle and non-sticky formula. Creators used it over other lip products to add a high-impact, shimmering finish. The sentiment was very positive, focusing on its comfortable wear and visual appeal.
-
-9.  **Escape Pod Palette by KALEIDOS** — 2 mentions  
-    Creators were drawn to the palette's unique, "out of this world" color story. Discussions highlighted the high impact of the shimmer shades in particular. The sentiment was positive, with an emphasis on the palette's distinctive and creative color selection.
-
-10. **All I Ever Wanted Palette by Unearthly Cosmetics** — 2 mentions  
-    In first impressions and reviews, creators expressed being highly impressed with the quality of this palette. Both the rich mattes and sparkly shimmers received praise. The positive sentiment suggests the product lives up to its name for consumers seeking high-quality formulas.
+8.  **Boy Brow by Glossier** — 2 mentions  
+    Boy Brow was featured as an essential product for quick and easy brow grooming. Creators valued it for achieving a "fluffy, natural" brow look and included it in their "5-minute face" routines. It was consistently framed as a simple solution for everyday brows.
