@@ -1,27 +1,33 @@
 # Weekly Top 10 Indie Makeup Product Mentions
 
-**Reporting Period:** May 20–27, 2024
+**Reporting Period:** February 2–8, 2026
 
-1.  **Blursh by Made by Mitchell** — 5 mentions  
-    Creators consistently praised this liquid blush for its blendability and performance, describing it as a "perfect" formula that "blends like a dream." It was used to create soft-focus, watercolor effects on the cheeks and was noted for its ability to be layered over powder without any patchiness. The overall sentiment was overwhelmingly positive.
+1.  **Dead Roses Volume 2 Palette by Bella Beaute Bar** — 11 mentions  
+    This palette dominated the week with a major launch, featured in numerous reveal posts, swatch videos, and a direct comparison against another popular palette. Creators described the color story as a unique, grunge-inspired take on a Valentine's theme, reflecting the muted yet colorful tones of actual dead roses. The formula was consistently praised for its creamy, pigmented mattes and sparkly, non-flaky shimmers.
 
-2.  **Pretty Fresh Foundation by ColourPop** — 4 mentions  
-    This foundation was featured as a go-to base, with creators highlighting its lightweight feel and surprisingly good coverage. It was used for full glam looks and positioned as a viral favorite. One creator noted it performs best for those with normal to dry skin, indicating mixed but generally positive feedback.
+2.  **Dead Roses Highlight by Bella Beaute Bar** — 8 mentions  
+    Released alongside the Dead Roses palette, this highlighter was noted for being highly "impactful" and "super shifty," with visible pink, peach, and green reflects. While some creators mentioned they would use it as an eyeshadow due to its particle size, it was frequently applied to the face to complete looks. The product was consistently featured as a key component of the new collection.
 
-3.  **Matte Fluid Eye Paint by About-Face** — 3 mentions  
-    This product was celebrated for its performance in creating bold, graphic eyeliner looks. Creators raved about the formula's incredible staying power, emphasizing that it "does not move" and "didn't budge." The vibrant shades were also a key point of discussion for creating artistic and impactful eye makeup.
+3.  **Dream Sparkle Balm by Bella Beaute Bar** — 7 mentions  
+    This product line was expanded with six new shades, including three for the Dead Roses collection and three in collaboration with a creator. The formula was highlighted as a sheer but pigmented lipstick-balm hybrid with comfortable, non-gritty sparkle. Creators featured the balms in swatch posts and used them to complete lip looks, praising the expansion of the range.
 
-4.  **Cloud Paint by Glossier** — 3 mentions  
-    Cloud Paint was consistently mentioned as a staple for achieving a natural, dewy flush of color on the cheeks. Creators showcased its buildable pigmentation and highlighted its role in quick "5-minute face" routines. The product is clearly a favorite for an easy, everyday hint of color.
+4.  **Spectra Stamps/Pencils by Glisten Cosmetics** — 7 mentions  
+    These products were a staple for creators executing graphic and editorial makeup looks throughout the week. The dual-ended liner and stamp format was used in various colors (purple, red, black) to add precise, artistic details like wings and star shapes. Their repeated use across multiple creative looks underscores their versatility and popularity for detailed eye work.
 
-5.  **Chromaddiction Shimmer by Half Magic** — 3 mentions  
-    This shimmer product was used to add a "pop of glitter" and elevate makeup looks. While one creator mentioned experiencing some fallout, they concluded the intense sparkle was worth it. The overall sentiment suggests it's a high-impact product for adding a finishing touch of shimmer.
+5.  **Levitation Lash by Rituel de Fille** — 6 mentions  
+    This mascara appeared consistently as a finishing touch in numerous elaborate makeup looks from a single creator. It was used to complete a variety of complex and colorful eye styles, from graphic liner to smoky shimmers. Its repeated use suggests it is a reliable staple product for complementing bold, editorial makeup.
 
-6.  **The Warrior Eyeshadow Palette by Juvia's Place** — 3 mentions  
-    Creators praised this palette for its "insane" and "intense" pigmentation, particularly highlighting the gold shades. It was used to create vibrant looks, such as a "stunning sunset eye." The commentary was uniformly positive, focusing on the high color payoff of the eyeshadows.
+6.  **Diabla Palette by Blend Bunny Cosmetics** — 5 mentions  
+    Creators utilized this palette for vibrant, red-toned eyeshadow looks, often with a Valentine's Day theme. It was praised as a "masterpiece," with specific enthusiasm for the intense red shades used to create smoked-out effects. The palette was also featured in tutorials and get-ready-with-me style content.
 
-7.  **Super Shock Shadow by ColourPop** — 2 mentions  
-    This eyeshadow was mentioned for its unique, bouncy texture and its ability to provide a "little sparkle." Creators used it for swatching and as a simple way to add shimmer to the eyes. The product was positioned as a fun and texturally interesting option for eye makeup.
+7.  **Magnetic Mineralia Palette by Dieverune Cosmetics** — 5 mentions  
+    This palette was featured in several creative looks and was the subject of a direct comparison video against the new Dead Roses palette, highlighting its restock. Creators noted its cooler-toned, gemstone-inspired color story as its key point of difference. It was used to create graphic, multi-chrome eye looks.
 
-8.  **Boy Brow by Glossier** — 2 mentions  
-    Boy Brow was featured as an essential product for quick and easy brow grooming. Creators valued it for achieving a "fluffy, natural" brow look and included it in their "5-minute face" routines. It was consistently framed as a simple solution for everyday brows.
+8.  **Made a Monster Palette by Unearthly Cosmetics** — 5 mentions  
+    This palette was used to create multiple colorful and editorial looks, particularly focusing on its pink and red shades. Creators specifically praised the "excellent" variety of shimmer textures within the palette. It was a go-to choice for vibrant, creative eye makeup throughout the week.
+
+9.  **Juicy Tints by Glisten Cosmetics** — 4 mentions  
+    Featured in swatch posts and used to build lip combos, the Juicy Tints were highlighted for their staining formula. Creators demonstrated several shades as part of soft goth and grunge-inspired looks. The product was used both as a base layer and as a standalone lip color.
+
+10. **Succulent Dew Palette by Singe Beauty** — 3 mentions  
+    This palette was showcased in detailed swatch posts and flatlays, where creators described it as "stunning." The formula was praised for its "great Singe quality," including smooth, sparkly shimmers with holographic shifts. The palette's cool-toned color story was a frequently mentioned attribute.
