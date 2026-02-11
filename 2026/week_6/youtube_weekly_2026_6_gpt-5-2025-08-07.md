@@ -1,128 +1,130 @@
 # Weekly YouTube Beauty Media Landscape Report
 
-- Key takeaway: For the week of Feb 2–8, 2026, indie eyeshadow palettes dominated creator attention, with Bella Beauté Bar’s Dead Roses Vol. 2 (launching Feb 9) and new Sparkle Balm shades driving clear pre-launch demand alongside a surge in UK indie visibility (Cosmic Brushes/Cosmic Beauty and Arttitude).
+- Key takeaway: Feb 2–8, 2026 was a decisive “alt‑Valentine’s” week: indie palettes with vampy/grungy color stories and wet‑look shimmers dominated creator attention, with Bella Beauté Bar’s Dead Roses 2 and Arttitude’s Moonlight Muse converting heavy pre‑launch interest into imminent buys.
 
 ## 1. Overview
 
-This week felt like peak Valentine’s “rose-goth” season: pinks, berries, and vamp tones were everywhere, often paired with high-impact sparkle toppers. Indie palette content was dense and upbeat, with multiple creators posting multi-look formats, ranking videos, and swatch parties.
+Indie color moved the conversation. Creators leaned into gothic romance and cool‑toned purples/berries with grungy greens and high‑sparkle shimmers. The mood was maximalist and technique‑forward (shimmer layering, strategic mattes), with multiple creators explicitly pushing past “clean girl” minimalism.
 
-There was visible creator enthusiasm for newness from smaller brands (Bella Beauté Bar, Cosmic Brushes/Cosmic Beauty, Arttitude, Unearthly, Blend Bunny) and repeated usage of sticky eye primers to maximize shimmer impact. Texture talk skewed to gel/bouncy and balm/toppers—on eyes and lips.
+Enthusiasm coalesced around a few standout palette launches/restocks (Bella Beauté Bar Dead Roses 2/Vol II, Arttitude Moonlight Muse, Cosmic Brushes Angelic/Gothic, Blend Bunny Diabla). Content skewed visual and short-form for swatches and “look recipes,” while longer formats ranked and contextualized formulas (Battybean’s roundup; Angelica’s 6 palettes/6 looks; Amy’s indie haul).
 
-Complexion chatter leaned “grippy gel” and soft-matte/bouncy (Milk Makeup Hydro Grip Gel Concealer received organic praise; Rare Beauty’s new complexion adds were widely referenced via shopping videos and brand highlights). Value sensitivity surfaced around inconsistent listed pricing for Arttitude Moonlight Muse.
+Texture talk was precise: “wet‑look” shimmers that are sparkly but non‑gritty; satins/soft metallics that don’t emphasize texture; refined multichromes over squishy/crumbly formulas. Utility mattes (a quality white, deep teals/purples) were flagged as “workhorse” shades.
 
-Mainstream skepticism targeted Makeup Revolution (reformulations and over-saturated collabs). Nostalgia/IP-led collabs still moved conversation (Lethal x SpongeBob, ColourPop x Twilight, Wicked Widow Rocky Horror).
+Mainstream signals ran parallel: Rare Beauty’s Ulta rollout drove listicles and shop‑with‑me coverage; “reformulation year” (EU compliance) framed luxury complexion chatter (Armani, Dior). Fragrance spiked via budget collabs (e.l.f x H&M) and “creamy gourmand” body mists (Sol de Janeiro, Phlur).
 
 ## 2. Product Momentum (What’s Being Talked About)
 
-- Top mentioned indie products
-  - Bella Beauté Bar Dead Roses Vol. 2 (launch 2/9) and Sparkle Balm shade expansion: multiple swatch/looks, dedicated previews, and countdowns across creators (battybean, Angelica, Noopur); strong positive language (“dream,” “loving the vibes”), explicit launch timing, and code usage.
-  - Cosmic Brushes/Cosmic Beauty Angelic (and Gothic in combos): repeated placements, palette bingo, and positive wear/performance notes.
-  - Arttitude Cosmetics Moonlight Muse + singles: featured in multi-palette videos; some price confusion noted by Rachel (post vs. site).
-  - Unearthly Cosmetics Made a Monster: shown by battybean and Angelica with upbeat takes.
-  - Blend Bunny x Chanel Diabla: early “beaut” sentiment and preorder push; visible creator code usage.
-  - Gourmande Girls Bleeding Hearts, Bella Beauté Bar x Deandra Pinky Promise, Glamlite x Bratz, Nomad Paris La Bohème, Starborn Nascent (ongoing mentions).
+- Top indie spotlights
+  - Bella Beauté Bar Dead Roses 2/Vol II (multiple creators: Battybean, Angelica, Rachel, Noopur): strong positive for grungy/vampy story, creamy mattes, high‑impact but smoother shimmers; pre‑launch urgency (2/9). Sparkle Balms (incl. Deandra collab) also positively received for non‑gritty high shine.
+  - Arttitude Cosmetics Moonlight Muse + Singles (Angelica, Battybean ranking, Rachel): positive; celestial, cool‑toned purples/silvers with intense multichromes; cited as top pick outside creator’s own brand.
+  - Cosmic Brushes (Angelic, Gothic) (Battybean tutorials/bingo, Rachel): positive; angelic grunge aesthetic; deep mattes + ethereal shimmers; versatility highlighted by cross‑palette mixing.
+  - SINGE Succulent Dew + Blushes (Battybean #1; Angelica usage): very positive; teals/purples/berries and glowy, non‑glitter blush finishes.
+  - Unearthly Made a Monster + metallic lips (Battybean, Angelica; Rachel lip oils): positive; neon‑adjacent pinks, flaky/squishy shimmers needing wet application; metallic lip “Darkling” admired.
+  - Blend Bunny Diabla (Battybean reveal; Rachel new releases), Surge (Noopur technique): positive; large format artistry gradients; “two‑step shimmer over matte” tip boosted perceived payoff.
+  - Lethal Cosmetics: mixed. SpongeBob palette praised for mattes/color fun but repeat criticism that shimmers are too sheer; Conjuring setting powder panned (texture/balling). Infinity Lip Stains and nail polishes were positively received; Blood Drop primer mixed (gimmicky visuals, decent grip).
+  - Milk Makeup Hydro Grip Gel Concealer (Battybean, Heather PR teaser): early positive for blendability/convenience stick format.
 
-- Sentiment trends
-  - Predominantly positive for Dead Roses Vol. 2, Sparkle Balm, Angelic/Gothic, Moonlight Muse, Made a Monster, and Diabla.
-  - Mixed around Arttitude pricing clarity; negative tone toward Makeup Revolution’s perceived trolling/reformulation cycle.
+- Sentiment patterns
+  - Consistently positive: BBB Dead Roses 2, Arttitude Moonlight Muse, SINGE Succulent Dew/Blushes, Cosmic Brushes Angelic/Gothic, Blend Bunny Diabla, What’s Up Beauty sophistiBALM (Rachel “Top Drawer”), About‑Face Illusionist Concealer (Rachel “Standout”).
+  - Mixed/split: Urban Decay Tube Job Mascara (Battybean: underperformed after first use; Heather: “holy grail”), Lethal x SpongeBob palette (sheer shimmers), Buxom Flip Side (liner good, shadow sponge poor), Merit/ND complexion (great formulas but higher coverage than some creators prefer).
+  - Negative: Freck Lashrocket liner (applicator/formula), Makeup Revolution Bouncy Blur Blush (dry/patchy), Lethal Conjuring Sanctified Seal (pilled).
 
-- Context driving mentions
-  - Performance: heavy focus on shimmer payoff and crease resistance using sticky primers (DeDe Signature Cookie; Bella Beauté Bar Shimmer Stay).
-  - Textures: multichrome/sparkle toppers; balm toppers for lips/eyes; gel/bouncy complexion formats.
-  - Value/price: $45–$75 palette band accepted when payoff/curation is strong; confusion hurts Moonlight Muse momentum.
-  - Hype cycle: Dead Roses Vol. 2 and Sparkle Balms are at peak pre-launch hype; Diabla is building via preorder content; Angelic is settling into “default comparison point” status for rosy/ethereal color stories.
+- Context driving chatter
+  - Performance: “wet‑look” high shine without grit; creamy deep mattes that blend on dark looks; shimmer payoff boosted over matte bases.
+  - Novelty: IP collabs (Rocky Horror, SpongeBob), indie collabs (Diabla, Deandra), non‑AI illustrated packaging valued.
+  - Value/positioning: Rare Beauty at Ulta (points), affordable luxury fragrance (e.l.f x H&M), indie multichrome superiority vs mainstream.
 
-- Notable product combinations creators used
-  - Eyes: Dead Roses Vol. 2 layered over DeDe Cookie or Bella Shimmer Stay; Angelic + Gothic mixed for “angel-goth” looks.
-  - Lips: vampy liners (Black Moon, Unearthly) + Menagerie liquid lips; Unearthly lip oils as glossy topper.
-  - Complexion: Rare Beauty bronzer/liquid contour used widely with powder blush toppers; Milk Hydro Grip Gel Concealer called out for blendability.
+- Notable testing clusters
+  - “Lots of creators swatching/using Dead Roses 2” across formats (full reviews, swatch shorts, launch guides).
+  - “Moonlight Muse” repeatedly used as a cool‑toned celestial benchmark.
+  - Repeat technique demo: shimmer layering over matched matte; utility of shimmer bases (BBB Shimmer Stay, Dede Signature primer).
 
-- Repeated criticism/notes
-  - “Makeup Revolution is trolling us” narrative resurfaced; creators wary of reformulation churn and derivative launches.
-  - Price listing inconsistency (Arttitude Moonlight Muse) flagged as a buyer hesitation point.
+- Product combos creators pushed
+  - Lip stacks: Black Moon liners (Exhume/Underworld/Premonition) + Menagerie Velvet (Luna/Anthurium) or Unearthly metallics (Darkling); Kaleidos liner + Melt lipstick for neutral balance with colorful eyes.
+  - Blush layering: Glaminatrix Kind Liquid Blush + SINGE Pretentious Plum for saturated, longer‑wear berry cheeks.
+  - Palette pairing: Cosmic Brushes Gothic + Angelic in “palette bingo” to showcase complimentary depth/pastel contrast.
+  - Shimmer base + multichrome: Bella Beauté Bar Shimmer Stay under indie sparkles.
 
 ## 3. Category Trends
 
 - Momentum categories
-  - Eyeshadow palettes remain the engine: rose/berry + vamp/goth stories with gleaming toppers.
-  - Lip oils and sparkly balm toppers are surging (Bella Sparkle Balms; Unearthly Dead Cute Lip Oils; Merit/Gisou mentions in shopping content).
-  - Eyeliners: long-wear gel/liquid-stick formats (Urban Decay 24/7 Liquid Stick referenced repeatedly) and marker/dual-ended liners (Buxom, Hard Candy) got airtime.
+  - Eyeshadow palettes dominate (multichrome‑forward, cool‑toned/vampy/grunge stories). Singles/multichrome toppers resurging.
+  - Lips: dark liners + deep liquid/metallic lipsticks; glitter/sparkle balms and oils for high‑shine comfort.
+  - Blush: liquid‑then‑powder layering; glowy satin finishes over glittery particles.
+  - Eyeliners: long‑wear gel pencils praised (UD Liquid Stick Pencils); felt‑tip liners faced criticism.
 
 - Aesthetics/textures
-  - “Angelcore vs. gothcore” duality: soft rosy ethereal vs. deep vamp/blackened cherry.
-  - High-impact sparkle/multichrome on lids; sticky primers as standard workflow.
-  - Gel/bouncy bases; soft-matte skin with grippy concealers.
+  - Cool‑toned purples/plums, swampy greens/olives, berry reds; “angelic grunge.”
+  - “Wet‑look” shimmers and satins that don’t emphasize texture; refined multichromes; inner‑corner “pop.”
+  - Metallic/deep lips returning in alt spaces.
 
 - Fatigue/skepticism
-  - Pushback on mass collabs/reformulations (Makeup Revolution).
-  - Less discussion of large, neutral complexion shade-range debates; color and texture took center stage.
+  - Sheer/shifty shimmers that lack base pigment drew repeat critiques.
+  - Drugstore misses (Makeup Revolution formulas; disjointed collab concepts) called out.
+  - Packaging nitpicks (drawer palettes; wasted space; messy fingerprints) inform perceived value.
 
-- Seasonal shift signals
-  - Valentine’s-adjacent rose/pink/garnet looks; romantic themes and coffin-rose goth variants.
-  - Bundled looks and curated pairings for date/night aesthetics.
+- Seasonal shift
+  - From classic pink Valentine’s to “spooky/vampy romance.” Early spring “angelic/ethereal” pastels rising in tandem.
 
 ## 4. Emerging Themes & Narratives
 
-- Bella Beauté Bar dominance
-  - Cross-creator alignment on Dead Roses Vol. 2 (launch 2/9) and new Sparkle Balm shades; multiple swatch/looks and codes pre-seeding demand.
-
-- UK indie surge
-  - Cosmic Brushes/Cosmic Beauty and Arttitude present across battybean, Angelica, Rachel; UK-origin palettes are gaining visibility and being positioned as performance benchmarks for rosy/ethereal looks.
-
-- Sparkle requires stick
-  - Repeated use of DeDe Signature Cookie and Bella Shimmer Stay primers signals a norm: creators treat sticky bases as essential to maximize indie shimmers/multichromes.
-
-- Vampy lips revival via indie liners
-  - Black Moon, Menagerie, Unearthly liners/liquids repeatedly paired; deep berries/bricks are the week’s lip mood.
-
-- Gel/bouncy complexion momentum
-  - Milk Hydro Grip Gel Concealer praised in use; Rare Beauty’s soft-matte/bouncy textures repeatedly featured in haul/shop content—creators are priming audiences for “grippy, blur, soft-matte” base buys.
-
-- IP nostalgia still works
-  - Lethal x SpongeBob, ColourPop x Twilight, Wicked Widow Rocky Horror drew attention and positive vibes—collectability remains a conversion lever.
+- Alt‑Valentine’s goes mainstream in indie: Multiple creators converged on vampy/grungy romantic looks (Dead Roses 2, Rocky Horror, Bleeding Hearts).
+- Cool‑tone revival: Purples, teals, silvers become default comparison points (Moonlight Muse, Succulent Dew, Angelic).
+- Multichrome, but refined: Preference for high‑sparkle, non‑gritty, smoother pick‑up; shimmer layering over mattes widely taught (Noopur, Battybean).
+- Utility mattes matter: High‑quality white and deep teals/purples cited as elevating palettes (Angelica).
+- Retail/Regulatory backdrop: Rare Beauty’s Ulta expansion fuels listicles; EU‑driven reformulations (Armani, Dior) normalize “new formula” cycles.
+- Lip shine comfort trend: Sparkle balms, lip oils, glossy balms positioned as “top drawer” daily add‑ons (BBB Sparkle Balms, Unearthly oils, What’s Up Beauty mask).
+- Indie collab culture persists: Blend Bunny x Chanel Diabla, BBB x Deandra, Wicked Widow x Rocky Horror; hand‑drawn/non‑AI artwork appreciated.
+- Regional momentum: Western indie dominance (US/UK/AU/CA). UK (Arttitude, Cosmic Brushes) and AU (Glaminatrix) visibility high; K‑beauty mentions present (Glow Recipe) but peripheral.
 
 ## 5. Purchase-Intent Signals
 
-- Strong buy cues
-  - Dead Roses Vol. 2: multiple creators publishing full swatches, looks, and explicit launch details with affiliate codes; this typically precedes fast sell-outs.
-  - Sparkle Balm shade expansion: swatch shorts and inclusion in full reviews; clear add-on item for cart building.
-  - Blend Bunny Diabla: preorder push + code incentives; early praise suggests solid uptake.
+- Imminent drops/preorders
+  - Bella Beauté Bar Dead Roses 2/Sparkle Balms (2/9): multiple affiliates, repeated swatch demos, urgency language (“dream,” “launching”).
+  - Blend Bunny Diabla: preorder with broad influencer coverage.
+  - Arttitude Moonlight Muse: ranked top among non‑self brands; singles amplify basket size.
 
-- “Worth it” narratives
-  - Angelic (Cosmic Brushes/Cosmic Beauty) referenced as a default rosy-ethereal comparator—implies stable, ongoing sales.
-  - Milk Hydro Grip Gel Concealer: organic short-form praise from battybean—immediate try-now impulse.
+- Creator superlatives that move units
+  - “Ranked #1” (SINGE Succulent Dew), “Stand Out” (About‑Face Concealer, What’s Up lip mask), “favorite luxury formula” (Byredo), “holy grail” (UD mascara—note split sentiment).
+  - Visual “one‑swipe” pigment and sparkle macro shots across shorts increase impulse conversions.
 
-- Friction points
-  - Arttitude Moonlight Muse price inconsistency publicly noted—expect questions; clear, consistent pricing and value framing will be needed to convert.
+- Add‑on drivers
+  - Shimmer bases/primers (BBB Shimmer Stay, Dede Signature) shown to materially boost payoff.
+  - Lip liners as anchors for bold lips (Black Moon, Unearthly).
+  - Brush specificity (Singe eye brushes) tied to technique success.
 
-- Under-the-radar but rising
-  - Unearthly Made a Monster sustained mentions across creators.
-  - Long-wear liners (Urban Decay format) spur interest; indie analogs could ride the wave.
+- Caution flags
+  - Freck Lashrocket liner, Makeup Revolution Bouncy Blur Blush, Lethal Conjuring setting powder show consistent negatives; Lethal SpongeBob shimmers flagged as sheer—position carefully.
 
 ## 6. Opportunities for the Store
 
-- Stocking priorities (immediate)
-  - Bella Beauté Bar Dead Roses Vol. 2 and new Sparkle Balm shades: secure launch-day inventory and enable bundles (palette + Sparkle Balm + sticky primer).
-  - Cosmic Brushes/Cosmic Beauty Angelic (and Gothic if available): maintain depth; promote as “angelic core” anchor with look guides.
-  - Blend Bunny x Chanel Diabla: support preorder interest with clear ETAs and code promotions.
-  - Unearthly Cosmetics Made a Monster; Gourmande Girls Bleeding Hearts: capitalize on sustained, positive multi-creator exposure.
+- Prioritize/feature
+  - Bella Beauté Bar Dead Roses 2 + Sparkle Balms: front-page feature through launch week; bundle with BBB Shimmer Stay and the “Realm” lip liner. Offer “Vampy Romance Set” (palette + highlighter + balm).
+  - Arttitude Moonlight Muse + key singles (e.g., Galaxy): “Celestial Cool‑Tone Kit” with a high‑quality white matte single if stocked.
+  - Cosmic Brushes Angelic & Gothic: sell as a duo (“Angelic Grunge Bundle”) with a shimmer base and a deep navy/teal liner.
+  - SINGE Succulent Dew + Evocative Silk Blushes: position as cool‑tone revival leaders; cross‑sell with Glaminatrix Kind Liquid Blush for a “Layered Berry Cheek” mini‑bundle.
+  - Blend Bunny Diabla: enable preorder/reserve lists; highlight gradient‑friendly layout for artistry/beginner appeal.
 
-- Attach and upsell
-  - Primers that “lock shimmers”: DeDe Signature Cookie Primer and Bella Shimmer Stay. Create “Sparkle System” bundles with palette + primer + topper balm.
-  - Vamp lip kits: curate combos mirroring creator looks (e.g., Black Moon liners + Menagerie Velvet Matte liquids + Unearthly lip oils). Offer swatch cards replicating battybean’s combos.
+- Lip category build‑out
+  - Stock and bundle indie “Alt Lip Builder” kits: Black Moon liners (Exhume/Underworld/Premonition) + Menagerie Velvet (Luna/Anthurium) + Unearthly Menacing Metals (Darkling) + Kaleidos neutrals. Include a mini remover and lip care add‑on.
 
-- Fill rising demand categories
-  - Long-wear eyeliners: if Urban Decay isn’t carried, stock indie analogs (e.g., Ravie Beauty longwear, Glisten liners for brights; Gavissi water-activated as creative add-on) and position them as “24/7-style” solutions.
-  - Gel/bouncy bases: consider carrying Milk Hydro Grip Gel Concealer if possible; if not, source indie/K-beauty gel-texture concealers and emphasize the “grip + blur” payoff creators highlighted.
+- Tools and enhancers
+  - Carry shimmer/gritter bases (BBB Shimmer Stay), indie‑friendly eye primers, and Singe eye brushes (E01/E02/E04/E06). Merchandise as “Make Your Multichromes Stick & Sparkle.”
 
-- Messaging and merchandising
-  - Seasonal curation: “Angelcore vs. Gothcore” storefront tiles featuring Angelic/Gothic palettes, Dead Roses Vol. 2, vamp lip kits, and sparkle add-ons.
-  - Clarify pricing/value on Arttitude Moonlight Muse (address the noted discrepancy in copy). Add comparison swatches and shade story breakdowns to justify spend.
+- Fill identified gaps
+  - Singles: high‑quality matte white; deep teal, deep plum; refined multichrome toppers (non‑gritty).
+  - Metallic deep lipsticks for alt looks; non‑gritty sparkle balms/oils.
 
-- Caution/ deprioritize
-  - Avoid investing in Makeup Revolution cycles; creator skepticism is high and not aligned with indie positioning.
-  - Monitor Byredo Vesuvio interest but expect conversion challenges at luxury price points; prioritize indie alternatives in similar color stories.
+- Curation and education
+  - Create a “Two‑Step Shimmer” landing page (pick a matte + matching shimmer; add base) with 60‑second application videos. 
+  - Tag products with texture notes (“wet‑look,” “non‑gritty,” “beginner‑friendly matte”).
 
-- Operational notes
-  - UK indie procurement (Cosmic, Arttitude): plan for stock buffers and pre-announce restock dates—US demand is rising, and shipping lead times can bottleneck momentum.
-  - Build rapid “looks library” content tied to each key palette (2–3 creator-inspired recipes per SKU) to harness search and speed conversion during launch windows.
+- Cautious stocking/positioning
+  - De‑prioritize Freck Lashrocket liner, Makeup Revolution Bouncy Blur Blush, Lethal Conjuring setting powder. If carrying Lethal SpongeBob palette, set expectations around sheer shimmers and steer customers to stronger Lethal mattes/lip stains.
+
+- Operations
+  - Reinforce breakage‑resistant packing for flaky/sparkly formulas (shipping fragility called out).
+  - Build notify‑me/restock automations for high‑velocity items (BBB, Arttitude, Blend Bunny).
+  - Leverage affiliate/creator tie‑ins: timed email blasts aligned to creator codes and launch windows (2/9 BBB, ongoing Diabla preorder).
+
+This week’s data points to sustained demand for cool‑toned, high‑sparkle indie palettes and alt lip builders, with clear upsell paths via shimmer bases, liners, and brushes. Packaging refined textures and technique education will lift conversion and AOV.
