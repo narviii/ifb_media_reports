@@ -1,33 +1,33 @@
-# Weekly Top 10 Indie Makeup Product Mentions
+# Weekly Top 10 Indie Makeup Products Report
 
-**Reporting Period:** February 9–15, 2026
+**Reporting Period:** February 09–15, 2026
 
-1. **Blue Hues Palette by Shine By SD Cosmetics** — 15 mentions
-   This 5-pan palette, a collaboration with creator @glamsmitty, dominated the week due to its launch on February 15. Creators highlighted the "multidimensional sparkle" and "intense blue-green" shifts, with specific praise for the shade "Moonglass." The sentiment was overwhelmingly positive, focusing on the brand’s reputation for high-impact shimmers and the cohesive blue color story.
+1. **Blue Hues Palette by Shine by SD Cosmetics** — 13 mentions
+   As the week's standout launch, this collaboration with creator Glamsmitty dominated the conversation, with influencers praising its focused 5-pan blue color story. Creators highlighted the "electrifying" and "marbled" qualities of the multichrome shades, specifically noting the high-sparkle textures of shades like "Mist" and "Whimsical." The sentiment was overwhelmingly positive, with swatches demonstrating intense pigmentation and multidimensional shifts.
 
-2. **Dead Roses Vol. 2 Palette by Bella Beauté Bar** — 12 mentions
-   As a major Valentine’s week launch, this palette was celebrated for its "grungy rainbow" aesthetic and "dumb good" shimmer formula. Creators like Dee Dee and Xander emphasized its vibrancy on dark skin and the unique "matte-with-sparkle" textures. It was frequently paired with the brand's matching highlighters and lip products in full-face tutorials.
+2. **Diabla Palette by Blend Bunny Cosmetics** — 11 mentions
+   This palette remains a staple for alternative and grunge aesthetics, frequently cited by creators for its deep, blendable mattes and "spooky" color story. It was used repeatedly to create structural, dramatic eye looks, with influencers noting its versatility for both intricate graphic liners and blown-out smoky eyes. The sentiment is highly favorable, with creators often pairing it with newer launches to add depth.
 
-3. **Diabla Palette by Blend Bunny Cosmetics** — 11 mentions
-   Despite not being a new release, this palette remains a staple for creators executing dramatic, structural eye looks. It was praised for its deep mattes, which allow for "grey smoky" framing and graphic liners, and was cited as a top choice for "anti-Valentine's" aesthetics. The sentiment highlights its reliability for blending and its versatility between ethereal and dark styles.
+3. **Dead Roses II Palette by Bella Beauté Bar** — 9 mentions
+   Driving significant engagement due to its launch this week, this sequel palette was celebrated for its "grungy rainbow" of sparkles and high-impact shimmers. Creators described the formula as "dumb good" and "standout," focusing heavily on the unique, shift-heavy metallic textures suitable for Valentine’s and anti-Valentine’s looks. The reception was enthusiastic, particularly regarding the wet-look finish of the shimmer shades.
 
-4. **Sweethearts & Secrets Palette by Dede's Signature** — 6 mentions
-   This palette garnered attention for its high-quality pigmentation and "unique color story" that performs exceptionally well on deep skin tones. Creators like battybean and Angelica Nyqvist showcased opaque swatches and vibrant inner-corner highlights. The consensus points to significant quality improvements from the brand, with the mattes described as buttery and easy to blend.
+4. **Spectra Collection (Liners & Mascaras) by Glisten Cosmetics** — 9 mentions
+   Creators utilized this line of water-activated liners and colored mascaras to add graphic details, such as stars and sharp wings, to creative looks. The products were praised for their opacity and precision, with the "Spectra Lash" and "Spectra Stamp" variants appearing frequently in product breakdowns for alternative makeup styles. The sentiment highlights the line as a reliable go-to for adding pop art elements to complex eye looks.
 
-5. **Spectra Graphic Liners by Glisten Cosmetics** — 7 mentions
-   Creators frequently utilized the Spectra line—specifically the stamps and pencils—to add graphic details like hearts and stars to creative looks. The products were noted for their utility in "creative makeup" and "alternative" styles, with the "Bleach" and "Dark Blue" shades receiving specific callouts. Usage was high among Instagram creators focusing on intricate, artistic application.
+5. **Sweethearts & Secrets Palette by Dede's Signature** — 6 mentions
+   This palette was commended for its vibrancy, particularly on deep skin tones, and its diverse color story featuring deep mattes and multichromes. Influencers showcased high-quality swatches that demonstrated excellent pigmentation and blendability, positioning it as a strong choice for romantic yet bold makeup. The sentiment was consistently positive, with specific praise for the brand's quality improvements over time.
 
 6. **Bleeding Hearts Palette by Gourmande Girls** — 5 mentions
-   This palette was a recurring favorite for Valentine's content, ranked highly by creators for its "vampy, berry-toned" and "spooky plant" theme. It was used to create dramatic red and pink eye looks, with creators noting the excellent pigmentation of the deep mattes. It holds strong nostalgic value while remaining a go-to for edgier holiday looks.
+   A recurring favorite for Valentine's Day content, this palette was championed for its vampy, berry-toned aesthetic and "spooky plant" theme. Creators used it to achieve bold red and pink dramatic eye looks, praising the deep mattes for their ability to create intense, smoky definition. It remains a top-ranked palette for holiday-specific content among indie makeup enthusiasts.
 
-7. **Sparkle Balms by Bella Beauté Bar** — 5 mentions
-   Often used to complete looks featuring the *Dead Roses Vol. 2* palette, these lip products were described as comfortable "lipstick-lip balm hybrids." Creators praised the shade "Cosmic Dust" for its high-shine finish that pairs well with darker liners for an ombré effect. The product is trending as a comfortable alternative to traditional liquid lipsticks without sacrificing impact.
+7. **Astral Radiance Highlighter Trio by Cosmic Brushes** — 4 mentions
+   The blue shade from this trio was singled out by creators for its unique, smooth formula that provides a vibrant glow without emphasizing texture. Influencers noted it as a unique alternative to standard purple highlighters, praising its ability to create a "wet look" on the skin. The sentiment focused on its high-shine finish and seamless blendability.
 
-8. **Astral Radiance Highlight Trio by Cosmic Brushes** — 4 mentions
-   This highlighter was repeatedly cited for its "smooth and glowy" finish that avoids emphasizing texture. The blue shade in the trio was a standout, used by creators to create ethereal, color-shifted high points on the face and inner corners. It is described as vibrant and unique compared to standard purple or pink highlighters in the indie market.
+8. **Rocky Horror Show Palette by Wicked Widow Beauty** — 3 mentions
+   Creators expressed appreciation for the on-brand theming and the palette's mix of deep, smoky shades with sparkly shimmers. It was used to create complex, dramatic looks, with reviewers noting the matte formula was "buttery soft" and easy to build up. The sentiment was positive, appealing specifically to fans of the cult classic film and gothic aesthetics.
 
-9. **Rocky Horror Show Palette by Wicked Widow Beauty** — 3 mentions
-   Creators praised this 20-pan magnetic palette for its on-brand theming and "buttery soft" mattes. It was used to create complex, deep smoky looks, with reviewers noting that the shimmers are high-quality without being overly textured or "squishy." The color story is viewed as versatile, offering both dramatic and wearable options.
+9. **Made a Monster Palette by Unearthly Cosmetics** — 2 mentions
+   This palette was highlighted for its "stunning" chrome shades and unique monster-inspired theme. Creators were impressed by the initial swatch performance, particularly the intensity of the metallic textures, though some noted they were still in the testing phase. The sentiment reflects excitement for the color story and the brand's reputation for high-quality shimmers.
 
-10. **Made a Monster Palette by Unearthly Cosmetics** — 2 mentions
-    This palette was highlighted for its "stunning" chrome shades and impressive matte formula upon first impression. Creators focused on the unique color story, particularly the pink and green tones, describing the shimmers as "blinding." It is positioning itself as a strong contender for those seeking a "pretty but spooky" aesthetic.
+10. **Succulent Dew Palette by Singe Beauty** — 2 mentions
+    Creator-owned Singe Beauty received praise for this palette's performance in creating soft, spring-appropriate looks. Influencers highlighted the light pink and shimmer shades for defining cut creases, noting the formula's buildability and the "excellent" color story for the season. The sentiment was positive, with creators acknowledging the thought put into the shade selection by the brand owner.
