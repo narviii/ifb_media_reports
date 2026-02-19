@@ -1,57 +1,60 @@
 # Weekly YouTube Beauty Media Landscape Report
 
-- **Key Takeaway:** The week ending **February 14, 2026**, was defined by a "Dark Romance" and "Valloween" (Valentine’s + Halloween) aesthetic, driving momentum for indie palettes featuring deep berries, greys, and high-shine shimmers. Simultaneously, a "2016 vs. 2026" narrative is pushing a return to maximalist makeup, provided the formulas offer modern, lightweight performance.
+- **Period:** February 9, 2026 – February 15, 2026
+- **Key Takeaway:** The week was defined by a collision of aesthetics: a "2016 Makeup Revival" (heavy glam, cut creases) meeting "Valloween" (spooky/grunge Valentine's). Indie brands dominated share-of-voice, with creators explicitly noting that indie formulations are currently outperforming legacy mainstream brands in the eyeshadow category.
 
 ## 1. Overview
 
-The beauty space this week was dominated by a clash of aesthetics: the "Clean Girl" glow (championed by Merit) versus a resurgence of "2016 Glam" (cut creases, full coverage) reinterpreted for 2026. Creators are actively discussing the return of heavy makeup but emphasizing that modern formulations allow for these looks without the "cakey" texture of the past decade.
+The beauty space this week felt like a rejection of "clean girl" minimalism in favor of artistry and pigment. A significant narrative, led by Angelica Nyqvist, focused on the return of 2016-style full glam, but with a 2026 twist: lighter base products replacing heavy foundations, while keeping the dramatic cut creases and bold highlighters.
 
-"Valloween" emerged as a dominant micro-season. Rather than traditional soft pinks, creators gravitated toward "Anti-Valentine" color stories—grungy purples, greys, and deep reds. This shift was visible in ranking videos and "Palette Bingo" challenges, where "spooky" indie brands outperformed mainstream romantic collections.
+Simultaneously, the "Valloween" (Valentine's + Halloween) aesthetic peaked. Creators like Battybean and Rachel Palmieri showcased deep berry, grey, and neon pink color stories, moving away from traditional soft romantic pinks. There is a strong "Alt-Girl" influence driving product choices toward grungy, cool-toned palettes.
 
-There is a palpable shift in review formats. Influencers are moving away from arbitrary monthly rankings toward "objective reviews" and "standout" lists to maintain credibility. Skepticism toward mainstream retail remains high, highlighted by viral content exposing expired or poor-quality "steals" at discount retailers like TJ Maxx.
+Texture remains a critical driver. "Jelly" textures faced scrutiny (mixed reviews on Lethal Cosmetics), while "sparkle" and "multichrome" finishes continue to be the primary justification for high price points. Influencer skepticism was directed at discount retailers (TJ Maxx) due to expired products, reinforcing the value of buying fresh from indie brands.
 
 ## 2. Product Momentum (What’s Being Talked About)
 
-### **Top Mentioned Indie Products**
-*   **Bella Beauté Bar:** The *Dead Roses* series (Vol 1 & 2) and *Sparkle Balms* are dominating. The *Dead Roses Highlighter* specifically generated high engagement due to its "wet look" finish on camera.
-*   **Blend Bunny:** The *Diabla* palette (collab with Chanel Diabla) is the "cool girl" product of the week. It appeared across multiple channels (Battybean, Rachel Palmieri, Angelica Nyqvist) as a benchmark for the "grunge-glam" aesthetic.
-*   **Dede Signature:** *Sweethearts & Secrets* palette. Praised for high-pigment mattes and "Goth-lite" color blocking (teal/purple).
-*   **Singe Beauty:** *Fearless Fig Blush*. While purple blush is trending, this specific product required educational content to overcome "pan intimidation."
+### Top Mentioned Indie Products
+*   **Blend Bunny "Diabla" Palette:** The clear winner of the week. Featured across multiple creators (Battybean, Rachel Palmieri) with high purchase intent signals. Praised for its versatility between ethereal and "edgy" looks and its "squishy" packaging.
+*   **Bella Beauté Bar (Various):** The brand has high momentum. The **"Dead Roses"** collection (palette & highlighter) and **"Crystallize"** palette were showcased for their "goth-glam" aesthetic. The highlighter specifically was used to demonstrate "blinding" glow.
+*   **Singe Beauty (Fearless Fig Blush & Succulent Dew):** Strong push on cool-toned purple blush. Amy Loves Makeup provided a dedicated tutorial proving its wearability, moving it from a niche product to a potential staple.
+*   **Dede Signature "Sweethearts & Secrets":** Gained traction for its holographic packaging and high-pigment swatches.
 
-### **Sentiment Trends**
-*   **Positive:** High-shine single shadows (ShinebySD *Blue Hues*), "wet" looking highlighters, and deep/vampy lip liners (Kaleidos).
-*   **Mixed:** **ColourPop**’s *Heart to Get* collection (blushes loved, glosses too icy) and *Eclipse* collection (good mattes, but fatigue with the IP).
-*   **Negative:** **Holika Holika** *Devil’s Plumper* (deemed "unwearable" due to pain), **Dolce & Gabbana** palettes (criticized for "cheap" packaging), and **Peter Thomas Roth** (boycott discussions due to controversy).
+### Sentiment Trends
+*   **Positive:** **ShinebySD x GlamSmitty "Blue Hues"** (praised for texture/sparkle), **Merit Bronze Balm** (praised for blendability in natural looks).
+*   **Mixed/Negative:** **Lethal Cosmetics x SpongeBob Jelly Blush** (criticized for patchiness and lifting foundation), **Morphe Brow Products** (quality control issues), **Holika Holika Devil's Plumper** (deemed too painful/unwearable).
 
-### **Notable Clusters**
-*   **The "Grey" Renaissance:** Multiple creators (Battybean, Rachel Palmieri) highlighted grey eyeshadows as a necessary component of the current color palette, often mixing them with pinks or purples.
-*   **Texture Talk:** "Mattes with sparkle" are a contentious but rising texture; creators are teaching viewers to *press* rather than blend these to preserve the effect.
+### Context & Combos
+*   **The "Lip Combo" Short:** A rising format where creators pair a dark liner (e.g., Kaleidos "Double Espresso") with a lighter center (e.g., Dose of Colors "Berry Me") to create a 90s/Ombré look.
+*   **Sparkle over Matte:** Creators are using "topper" shades to modernize older matte looks.
 
 ## 3. Category Trends
 
-*   **Eyes:** The market is saturated with palettes, but demand persists for **cool-toned, grungy color stories**. "Eye Swatches" (macro shots of application) are replacing arm swatches as the gold standard for selling premium indie shimmers (e.g., Heather Austin’s content).
-*   **Complexion:** A bifurcation exists. One side pushes **Merit’s** balm/serum textures for a "glass skin" look, while the other pushes **soft-matte** clouds (2016 revival) using blurring powders.
-*   **Cheeks:** **Purple Blush** is the breakout category. It is moving from niche to "wearable," provided creators offer tutorials on color theory (pairing with neutral bronzers rather than orange).
-*   **Lips:** **Vampy/Ombré Lips**. The trend is dark liner (brown/black) blended into a berry center. Gloss is being layered over matte liquid lips to modernize the finish.
+*   **Eyes:** The market is demanding **Multichromes and "Wet-Look" Shimmers**. Standard shimmers are being critiqued as "dated" (seen in reviews of older Sigma/ColourPop palettes). "Eye Swatches" (applying to the lid rather than arm) are becoming the standard for proving value.
+*   **Cheek:** **Purple and Cool-Toned Blush** is trending heavily. It is being positioned as a "neutral" for cool-toned eye looks.
+*   **Complexion:** A split focus. One camp is doing "spot concealing" with dry-down techniques (high coverage, minimal product), while the other is using sheer skin tints (Merit). The common denominator is **skin prep** (serums/primers) over heavy foundation.
+*   **Aesthetic Shift:** "Grunge Romance" — dark reds, greys, and berries mixed with neons.
 
 ## 4. Emerging Themes & Narratives
 
-*   **"Valloween" (Valentine's + Halloween):** A strong cross-creator narrative rejecting traditional romance for "spooky love." Brands like **Wicked Widow**, **Gourmande Girls**, and **Bella Beauté Bar** are winning here by marketing dark aesthetics in February.
-*   **The 10-Year Trend Cycle (2016-2026):** A collective realization that the "Clean Girl" era is fading. Creators are validating the return of full-glam techniques (baking, cut creases) but demanding lighter, hybrid skincare-makeup textures to execute them.
-*   **Indie Professionalism vs. Mainstream Flops:** A recurring theme is that indie brands (Lethal, Blend Bunny) now offer superior matte formulas compared to legacy prestige brands (Urban Decay, Too Faced), which are increasingly viewed as outdated or relying on nostalgia.
-*   **Discount Retail Skepticism:** Content highlighting the risks of buying beauty at TJ Maxx (expired Morphe products) reinforces the value of buying fresh directly from indie brands, despite the higher price point.
+*   **Indie Superiority:** A recurring narrative (Rachel Palmieri, Angelica Nyqvist) is that indie brands have surpassed mainstream brands in formulation technology. Creators are explicitly stating that older palettes from big brands "don't hold up" against new indie releases.
+*   **The "Drawer of Shame":** Influencers are creating content around reviewing backlogged PR. This highlights the saturation of the market; products that don't immediately grab attention are getting lost for months.
+*   **Anti-Consumerism/Shop Your Stash:** Even within review videos, there is a "Palette Bingo" trend encouraging viewers to use random shades from their existing collection rather than buying new, unless the new product offers a unique texture (like a multichrome).
 
 ## 5. Purchase-Intent Signals
 
-*   **"Intimidating but Worth It":** High purchase intent is forming around products that look scary in the pan (purple blush, neon pinks, greys) *after* a creator demonstrates blendability.
-*   **Sparkle/Shift Visuals:** Macro shots of "shifting" multichromes (ShinebySD, Adept, Dede Signature) are the strongest trigger for immediate "I need this" comments.
-*   **Affiliate Code Usage:** High frequency of code promotion (Battybean, Angelica) suggests audiences are price-sensitive but willing to convert if a discount is attached to a "trusted" indie launch.
-*   **Formula Upgrades:** Viewers are expressing intent to replace older palettes (e.g., older Sigma or ColourPop) with newer indie releases, citing that shimmer technology has "surpassed" products from just 3 years ago.
+*   **High Intent:**
+    *   **Cool-Toned/Purple Blush:** Viewers are being educated on how to wear it, lowering the barrier to entry.
+    *   **"Standout" Palettes:** Products labeled as "Standouts" (Blend Bunny Diabla, Bella Beauté Bar Basic Witch) are driving intent over general "good" reviews.
+    *   **Sparkle/Toppers:** High visual payoff in shorts/reels is triggering "I need that glow" sentiment.
+
+*   **Low Intent:**
+    *   **Jelly Blushes:** The negative reviews on the Lethal sponge-bob jelly blush may dampen enthusiasm for this specific texture category across brands.
+    *   **Mainstream Reformulations:** Skepticism around "clean" reformulations of legacy products (e.g., Nars, Tom Ford) potentially altering performance.
 
 ## 6. Opportunities for the Store
 
-*   **Stock "Dark Romance" Color Stories:** Prioritize palettes and singles that feature berries, forest greens, and greys. The "Anti-Valentine" aesthetic has legs beyond February into the general "Alt-Girl" market.
-*   **Purple Blush Bundles:** Capitalize on the education gap. Bundle purple blushes with the correct undertone bronzers (rosy/neutral) or brushes to make the trend accessible.
-*   **High-Shine Singles:** There is a gap for "topper" shades—single shadows that transform a look. Stocking brands like **ShinebySD** or **Clionadh** (or similar formulas) caters to the "magpie" consumer who already owns basic palettes.
-*   **Avoid "Painful" Plumpers:** The backlash against extreme sensation products (like Holika Holika) is real. Pivot to "comfort" lip oils and balms (like Merit or indie lip oils).
-*   **Monitor Brand Safety:** Be cautious with **Peter Thomas Roth** inventory due to current negative sentiment/controversy.
+*   **Stock Cool-Toned/Purple Blushes:** Demand is rising, and education is currently high on YouTube. If you have a purple or berry blush, push it now.
+*   **Highlight "Topper" Shades:** Market single shadows or highlighters as tools to "modernize" a customer's existing palette collection.
+*   **Curate "Grunge Romance" Bundles:** Group deep red lipsticks, dark liners, and cool-toned/grey eyeshadows. The "Valloween" aesthetic is currently more vibrant than traditional spring pastels.
+*   **Avoid "Jelly" Complexion Products:** Unless the formula is foolproof, the current sentiment is wary of them lifting base makeup. Stick to creams and balms.
+*   **Marketing Angle:** Use "high-performance" messaging. Align with the narrative that indie formulas are the "pro" choice compared to watered-down mainstream options.
