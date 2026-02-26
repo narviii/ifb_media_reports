@@ -2,32 +2,32 @@
 
 **Reporting Period:** February 16–22, 2026
 
-1. **The Old Soul Palette by Glaminatrix Cosmetics** — 8 mentions
-   Creators expressed high anticipation for this release, praising the "inner self" concept and the inclusion of a collectible coin. Reviews highlighted the formula's versatility, with Sini and Xander noting the "reflective" quality of the shimmers that offer a "wet look" and mattes that are soft yet buildable. The palette was frequently cited as a sophisticated, soft-glam option suitable for daily wear.
+1. **Cruise Collection by Nomad Cosmetics** — 22 mentions
+   Creators across both platforms extensively reviewed this nautical-themed launch, which features the matte "Coastal" palette, the shimmer "Aurora" palette, and highlighters. While the matte formula was praised for its velvety texture and muted color story, the shimmers received mixed feedback; some influencers like Angelica Nyqvist and Battybean loved the intense sparkle, while others noted a crumbly texture that required glitter glue. The move to magnetic pans was widely celebrated as a positive packaging evolution for the brand.
 
-2. **Cruise Collection by Nomad Cosmetics** — 8 mentions
-   This collection marked a significant shift for the brand as their first release featuring fully magnetic pans, a detail heavily discussed by creators like Noopur and Heather Austin. The split between an all-matte and an all-shimmer palette was well-received, with influencers noting the shimmers were "impactful" and "pigmented," though slightly drier in texture than previous formulas. The nautical theme and anchor-embossed highlighters were also praised for their aesthetic appeal.
+2. **The Old Soul Palette by Glaminatrix Cosmetics** — 9 mentions
+   This palette was highlighted for its "grungy yet wearable" neutral color story and high-impact metallic shimmers. Creators like Battybean and Amy Loves Makeup praised the pigmentation and the wet-look finish of the shimmers, though some noted the color story felt familiar. The palette’s aesthetic, described as moody and reflective, resonated strongly with creators looking for sophisticated indie neutrals.
 
 3. **Lunar Amethyst Collection by Terra Moons Cosmetics** — 7 mentions
-   Released to celebrate the owner's birthday, this 12-shade collection was lauded for its cohesive purple, blue, and pink color story. Creators including Smita and Sini identified specific standout shades like "M42" and "Echo Pulse," describing them as "special" and "sparkly" with complex multichrome shifts. The hand-pressed formula was noted for its high pigment, though some creators advised using a tacky primer for the flakier textures.
+   This 12-shade birthday collection, featuring hand-pressed singles, was celebrated for its cohesive purple, blue, and pink color story. Instagram creators like Sini and Glamsmitty provided detailed swatch comparisons, highlighting specific shades like "M42" and "Echo Pulse" for their complex shifts and high sparkle. The mix of textures, from smooth multichromes to flakier glitters, was a key point of discussion.
 
-4. **Glitterpuck (Princess Ghost) by Half Magic** — 6 mentions
-   The launch of the new "Princess Ghost" shade generated significant excitement, with creators identifying it as a long-awaited icy blue addition to the line. Smita and Andromeda showcased its versatility, using it as both a sheer, ethereal highlighter and an intense inner-corner accent. The formula was consistently praised for its unique, "wet-looking" sparkle that layers well without disturbing base makeup.
+4. **Cosmic Dust Dream Lip Balm by Bella Beauté Bar** — 4 mentions
+   Creators were impressed by this unique "sparkle balm," often utilizing it as a lip topper to transform dark base colors into shimmering looks. Angelica Nyqvist and Battybean described it as a sheer, sparkly gray balm that offers a high-glitter payoff without feeling gritty. It was frequently paired with dark lip liners for a dramatic, alternative aesthetic.
 
-5. **Spectra Line (Liners & Stamps) by Glisten Cosmetics** — 6 mentions
-   The Spectra line, particularly the stamps and pens in "Taupe/Russet," appeared as a staple in creative looks, demonstrating high retention and utility. Creator Andromeda utilized the stamps in nearly every look for graphic details, while Courtney Quarantine used the pencils for precise lip contouring. The products were characterized as reliable tools for adding intricate, alternative details to grunge and graphic makeup styles.
+5. **Blue Hues Palette by Shine By SD Cosmetics** — 3 mentions
+   A collaboration with influencer Glamsmitty, this palette was praised for its specific focus on blue and teal tones. Creators noted the brand's signature dry-but-sparkly texture, with Noopur highlighting that the glitters were dense and not flaky. The collection was positioned as a high-value option for lovers of cool-toned, sparkly shadows.
 
-6. **Iridescent Single Shadows by Sheeneffect** — 4 mentions
-   This C-Beauty indie brand was heavily featured in "POV" style content focusing on iridescent and duochrome finishes. Smita highlighted shades like "Answer" and "Night Elves" for their high-impact shifts and smooth texture, positioning them as affordable alternatives for multichrome lovers. The shadows were praised for their ability to transform looks when layered or worn alone as "show-stopping" highlighters.
+6. **Diabla Palette by Blend Bunny Cosmetics** — 3 mentions
+   Influencers consistently praised this palette for maintaining the brand's high standards of matte pigmentation and blendability. Angelica Nyqvist and Heather Austin highlighted the deep, dark tones as perfect for adding depth to looks, with Heather specifically noting the inclusion of more mattes than usual. It was cited as a professional-grade staple for creating structured, dramatic eye looks.
 
-7. **Dream Lip Balm by Bella Beauté Bar** — 4 mentions
-   Featured shades "Cosmic Dust" and "Shooting Star" were celebrated for their unique combination of comfort and intense sparkle. Angelica Nyqvist described the formula as a "sheer, sparkly gray balm" that offers a grungy aesthetic, while other creators like Lindsey Rowley used it to achieve a high-glitter lip look. The product was noted for bridging the gap between lip care and high-impact indie glitter.
+7. **Sweethearts & Secrets Palette by DeDe Signature** — 3 mentions
+   This palette garnered attention for its unique color story and intense pigmentation. While Angelica Nyqvist expressed excitement about the formula and theme, she noted minor blending issues with a red shade. On Instagram, the packaging and "secret" theme were used creatively in flatlays, reinforcing the brand's whimsical aesthetic.
 
-8. **Eyeliner Collection by Kaleidos Makeup** — 4 mentions
-   The brand's gel eyeliners, specifically shades "Moon Mechanic," "Seven Seas," and "Aurora Runner," were frequently used to add pops of color to the waterline. Creators like Xander and Andromeda demonstrated the liners' high pigmentation and staying power in the waterline, using them to contrast against grungy or smoky eyeshadow looks.
+8. **Makeup Brushes by SINGE Beauty** — 3 mentions
+   Creators like Heather Austin and Battybean used these tools exclusively in their tutorials, signaling high trust in their performance. The brushes were specifically praised for their ability to blend out concealer without streaking and for their precision in packing on pigment. The distinct red and blue handles made them easily recognizable and frequently cited in product breakdowns.
 
-9. **Blue Hues Palette by Shine By SD Cosmetics** — 3 mentions
-   A collaboration with creator Glamsmitty, this palette was praised for its curated selection of blue and teal textures. Reviewers like Noopur and Heather Austin noted the brand's signature "dry texture" which provides intense sparkle without being flaky. The collection was highlighted as a high-value option for lovers of specific color stories, with the shade "Whimsical" noted for its satin finish amidst the heavy glitters.
+9. **Glitterpuck (Princess Ghost) by Half Magic** — 3 mentions
+   This icy blue highlighter/topper was celebrated by visual creators for its ethereal, sheer sparkle. Glamsmitty and S.Andromedae showcased its versatility, using it on the inner corners of the eyes and cheeks to create a "wet" look. The product was described as a long-awaited addition to the brand's lineup, filling a gap for a true cool-toned iridescent topper.
 
-10. **Sweethearts & Secrets Palette by DeDe Signature** — 3 mentions
-    Creators Angelica Nyqvist and Deandra Nicoleee praised this palette for its intense pigmentation and "grungy yet wearable" color story. While the unique color combinations were a major selling point, sentiment was slightly mixed regarding performance, with Angelica noting some minor blending difficulties with the red shade despite overall positive impressions of the brand's formula.
+10. **Sapphire Selene Palette by Adept Cosmetics** — 2 mentions
+    Reception to this palette was split between high praise for the formula and mixed feelings regarding the color story. Heather Austin lauded the innovative "chameleon sparkle" formula and the increased number of mattes, while Rachel Palmieri admired the green marble packaging but felt the colors didn't suit her personal preference. Despite the mixed sentiment on the color story, the formula quality remained a consistent point of praise.
