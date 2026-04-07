@@ -2,32 +2,32 @@
 
 **Reporting Period:** March 30–April 5, 2026
 
-1. **Speckled Pens by Glisten Cosmetics** — 7 mentions  
-   Creators frequently utilized these pens to add intentional, faux freckles across the nose and cheeks for an ethereal, alternative aesthetic. The taupe and russet shades were particularly popular for creating a natural-looking speckled effect that perfectly complemented bold, graphic eye looks.
+1. **Black Spring Palette by Lethal Cosmetics** — 7 mentions  
+   Creators highly praised this palette for its "dark spring" and dual vibrant-yet-moody color story. Reviews highlighted the impressive opacity of the dark mattes and the high-intensity, multi-dimensional shifts of the shimmer shades. The intricate packaging design and cooling metal eye primers launched alongside it were also noted as standout features.
 
-2. **Masterclass Pro Colored Pencils by Blend Bunny Cosmetics** — 5 mentions  
-   Highly praised for their creamy application and long-lasting, smudge-proof formula, these pencils were used extensively as both eyeliners and lip liners. Creators appreciated the neutral, carmine-free shade range, noting that the formula locks down completely after a brief blending window.
+2. **Speckled Pens by Glisten Cosmetics** — 7 mentions  
+   These pens, particularly in the taupe and russet shades, were frequently used by creators to add intentional, realistic faux freckles. They were consistently featured in alternative and grungy makeup tutorials to add speckling across the nose and cheeks. The product was praised for complementing soft, ethereal, and high-contrast editorial looks.
 
-3. **Masterclass Structure Palette by Blend Bunny Cosmetics** — 5 mentions  
-   This palette was a standout for complexion sculpting, with creators highlighting its highly pigmented, blendable contour and bronzer shades. The inclusion of a versatile blush and a wet-looking highlight made it a go-to for achieving a sculpted, glowing base.
+3. **Masterclass Structure Palette by Blend Bunny Cosmetics** — 6 mentions  
+   Creators loved this face palette for its blendability and versatile mix of contour, bronzer, and highlighting shades. The contour shades were specifically praised for providing a truly cool-toned, grayish sculpt, while the blush and highlighters delivered a beautiful, wet-looking glow. Reviewers noted the powders are highly saturated, requiring only a light tap for full color payoff.
 
-4. **Black Spring Palette by Lethal Cosmetics** — 5 mentions  
-   Creators were captivated by this palette's duality, utilizing its high-contrast mix of dark, moody mattes and vibrant neon shimmers. The intricate packaging and multidimensional, buildable formulas received overwhelmingly positive feedback for creating striking, alternative spring looks.
+4. **Masterclass Pencils by Blend Bunny Cosmetics** — 5 mentions  
+   These versatile color pencils were praised for their creamy application and incredibly long-lasting, lock-down formula. Creators used them across both the eyes and lips, appreciating the neutral, carmine-free shade range that works well for smudged or precise eyeliner looks. Reviewers noted they provide about 30 to 60 seconds of playtime before completely setting, though they can be slightly difficult to blend if lips are dry.
 
-5. **Levitation Lash Mascara by Rituel de Fille** — 5 mentions  
-   This mascara was consistently used to finish off editorial and avant-garde makeup looks. Creators relied on it to provide dark, defined, and fluttery lashes that balanced out heavy, graphic eyeshadow applications without overpowering them.
+5. **Dew Drop Blushes by Lethal Cosmetics** — 5 mentions  
+   This liquid blush formula impressed creators with its liquid-gel texture and buildable, dewy finish that doesn't look overly oily. Reviewers noted that it blends easily over both bare skin and set powder, looking highly natural. While the formula received high praise, some creators mentioned that specific shades, like the extremely cool-toned "Hypothermia," might not suit all undertones.
 
-6. **Silver and Cold Palette by Dieverune Cosmetics** — 4 mentions  
-   Embraced for its "gloomy spring" and winter-to-spring transitional vibe, this palette was celebrated for its muted, cool-toned mattes and ultra-sparkly shimmers. Reviewers noted the buttery soft matte formula and the elite combination of sparkle and shift in the metallic shades.
+6. **Intuition Contour by Rituel de Fille** — 5 mentions  
+   This cream contour was a staple in multiple editorial and avant-garde makeup routines. Creators consistently used it to softly sculpt the cheekbones, pairing it with luminous primers and high-contrast eye looks. It was favored for adding subtle, cool-toned definition to dewy, textured complexions.
 
-7. **Intuition Contour by Rituel de Fille** — 4 mentions  
-   This cream contour was a staple for creators aiming to achieve a soft, cool-toned sculpt. It was frequently paired with luminous bases and bold eye looks to add natural-looking definition to the cheekbones.
+7. **Levitation Lash by Rituel de Fille** — 5 mentions  
+   This mascara was repeatedly featured as the finishing touch in highly artistic, smoky, and graphic eye tutorials. Creators used it to define both upper and lower lashes, complementing intense metallic and duochrome eyeshadows. It consistently provided a natural, fluttery appearance that balanced heavier, editorial eye makeup.
 
-8. **Shape Shifter Highlight Palette by Glisten Cosmetics** — 4 mentions  
-   Used to add high-impact, iridescent glows to the cheekbones, brow bones, and inner corners. Creators frequently mixed the shifting shades to complement colorful, graphic makeup styles and enhance the overall ethereal aesthetic.
+8. **Lip Glaze by Blend Bunny Cosmetics** — 4 mentions  
+   Creators enjoyed this product's smooth, lightweight, and non-sticky formula that provides a beautiful, high-shine finish. It was frequently described as a long-lasting hybrid between a liquid lipstick and a gloss. Reviewers specifically favored the neutral shade range, noting it pairs perfectly as a finishing touch for cool-toned and grungy looks.
 
-9. **Glis Gloss by Glisten Cosmetics** — 3 mentions  
-   This gloss generated immense excitement for its unique, alternative gray tones like "Veil" and "Gray Area." Creators obsessed over the non-sticky, balmy texture and high-shine finish, often layering the shades to create perfectly moody, grunge-inspired lip combos.
+9. **Silver and Cold Palette by Dieverune Cosmetics** — 4 mentions  
+   This palette was celebrated for its muted, gloomy, and gray-toned color story, which creators felt was perfect for a non-traditional, "spooky spring" aesthetic. Reviewers praised the buttery, pigmented mattes and the ultra-sparkly, textured shimmers that offer a variety of shifts. While the overall quality was highly rated, one creator noted the pastel green matte was slightly thin and tricky to build.
 
-10. **Lip Glaze by Blend Bunny Cosmetics** — 3 mentions  
-    Praised as a comfortable hybrid between a liquid lipstick and a gloss, this formula was favored for its long-lasting wear and beautiful shine. Creators specifically highlighted the neutral shade range as the perfect finishing touch to pair with dramatic, colorful eye looks.
+10. **Krazy Kat Pigment by Karla Cosmetics** — 4 mentions  
+    This loose pigment was highly recommended by creators looking for an ethereal, blue-purple chrome shift. Reviewers praised its intense, glowy finish and versatile formula, using it both as a striking eyeshadow topper and an all-over facial highlighter. It was frequently highlighted in swatch comparisons as a standout, high-impact duochrome.
